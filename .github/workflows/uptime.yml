@@ -1,0 +1,57 @@
+name: Uptime Monitor
+
+on:
+  schedule:
+    - cron: "*/30 * * * *" # 每 30 分钟（UTC，与北京时间/曼谷时差固定）
+  workflow_dispatch: {} # 手动触发入口
+
+permissions:
+  contents: read
+  issues: write
+
+concurrency:
+  group: uptime
+  cancel-in-progress: false
+
+jobs:
+  check:
+    runs-on: ubuntu-latest
+    timeout-minutes: 10
+    steps:
+      - uses: actions/checkout@v4
+
+      - name: Check endpoints
+        id: check
+        run: |
+          set -o pipefail
+          python scripts/uptime_check.py > uptime_result.txt 2>&1 || true
+          cat uptime_result.txt
+          if grep -q "^STATUS: FAIL" uptime_result.txt; then
+            echo "result=fail" >> "$GITHUB_OUTPUT"
+          else
+            echo "result=ok" >> "$GITHUB_OUTPUT"
+          fi
+
+      - name: Open or update issue on failure
+        if: steps.check.outputs.result == 'fail'
+        env:
+          GH_TOKEN: ${{ secrets.GITHUB_TOKEN }}
+        run: |
+          python scripts/open_alert_issue.py < uptime_result.txt
+
+      - name: Close issue when recovered
+        if: steps.check.outputs.result == 'ok'
+        env:
+          GH_TOKEN: ${{ secrets.GITHUB_TOKEN }}
+        run: |
+          python scripts/close_alert_issue.py
+
+      - name: Summary
+        if: always()
+        run: |
+          {
+            echo "## Uptime 结果"
+            echo '```'
+            cat uptime_result.txt
+            echo '```'
+          } >> "$GITHUB_STEP_SUMMARY"

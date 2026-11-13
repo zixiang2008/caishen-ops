@@ -1,0 +1,45 @@
+name: YouTube Radar
+
+on:
+  schedule:
+    - cron: "0 1 * * *" # 01:00 UTC = 曼谷 08:00，赶在晨报之前
+  workflow_dispatch:
+    inputs:
+      hours:
+        description: "回看小时数"
+        type: string
+        default: "24"
+
+permissions:
+  contents: write
+
+concurrency:
+  group: youtube-radar
+  cancel-in-progress: false
+
+jobs:
+  radar:
+    runs-on: ubuntu-latest
+    timeout-minutes: 30
+    steps:
+      - uses: actions/checkout@v4
+
+      - uses: actions/setup-python@v5
+        with:
+          python-version: "3.12"
+
+      - name: Fetch new videos
+        run: |
+          python scripts/fetch_radar.py --hours "${{ github.event.inputs.hours || '24' }}"
+
+      - name: Commit report
+        run: |
+          git config user.name "caishen-ops-bot"
+          git config user.email "actions@users.noreply.github.com"
+          git add data/radar-state.json radar.md data/radar-latest.json
+          if git diff --cached --quiet; then
+            echo "无更新"
+          else
+            git commit -m "radar: $(date -u +%F) 更新"
+            git push
+          fi
