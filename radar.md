@@ -1,578 +1,562 @@
-# 订阅雷达 2026-11-18（回看 24 小时）
+# 订阅雷达 2026-11-19（回看 24 小时）
 频道 878/944 抓取成功 · 新视频 300 条
 
-## 全民話燒（15）
-- [張啓楷認跑行程內急「當街小解」　王世堅：男人沒那麼脆弱啦｜#全民話燒](https://youtu.be/m3dxo3gWdWo) · 2026-11-18T08:00
-- [攤商阿伯比手語「台北順起來」　沈伯洋真誠舉動網看哭｜#全民話燒](https://youtu.be/HIr3GvGZ_qk) · 2026-11-18T08:00
-- [張啓楷認跑行程內急「當街小解」　王世堅：男人沒那麼脆弱啦｜#全民話燒](https://youtu.be/VA07u4pC7ZY) · 2026-11-18T07:30
-- [洋流支持者海報被人撕毀　沈伯洋重新簽名安慰支持者｜#全民話燒](https://youtu.be/HwFXVz_AtfQ) · 2026-11-18T07:28
-- [洋流支持者海報被人撕毀　沈伯洋重新簽名安慰支持者｜#全民話燒](https://youtu.be/iwz7sZrUBOY) · 2026-11-18T07:27
-- [支持者簽名海報遭撕毀　沈伯洋重新簽名暖舉曝光｜#全民話燒](https://youtu.be/UDUfaESzPDA) · 2026-11-18T07:15
-- [張啓楷遭爆當街撒尿　本人出面承認道歉了｜#全民話燒](https://youtu.be/joz52PUYvfc) · 2026-11-18T05:15
-- [合體愛莉莎莎搶攻年輕票？沈伯洋親自回應了｜#全民話燒](https://youtu.be/DfAsWlnkmv4) · 2026-11-18T04:30
-- [王鴻薇堂妹表態拒投蔣萬安　蔣萬安：用4年政績爭取支持｜#全民話燒](https://youtu.be/i3kHe9voNg8) · 2026-11-18T04:18
-- [王鴻薇堂妹表態拒投蔣萬安　蔣萬安：用4年政績爭取支持｜#全民話燒](https://youtu.be/DwebTh0M5zM) · 2026-11-18T04:17
-- [張啓楷遭爆「當街撒尿」　沈伯洋傻眼回：真的假的｜#全民話燒](https://youtu.be/pxRJk47I5jc) · 2026-11-18T03:30
-- [王鴻薇堂妹表態拒投蔣萬安　沈伯洋：她是個獨立的市民｜#全民話燒](https://youtu.be/Tl6tLh0a_Sc) · 2026-11-18T02:55
-- [王鴻薇堂妹表態拒投蔣萬安　沈伯洋：她是個獨立的市民｜#全民話燒](https://youtu.be/X6GD2soAbl4) · 2026-11-18T02:45
-- [與秦慧珠掃街0互動　蔣萬安跳針冷回這句｜#全民話燒](https://youtu.be/0myJ1959OKQ) · 2026-11-18T00:39
-- [邊吃美食邊憶嘉大時光  畢業24年後想跟「這些人」道歉｜#全民話燒](https://youtu.be/Tutmqkn9NZ8) · 2026-11-17T12:30
+## 王剑每日观察Kim's Observation（15）
+- [黄仁勋背后又牵出了和中国军方的关系（精彩节选）/新闻8分钟](https://youtu.be/i8HCDASu_RY) · 2026-11-19T08:29
+- [黄乐背后的大买主是谁？/王剑每日观察 #shortsvideo #shortsviral #shortsfeed](https://youtu.be/OhjSxAdFlGQ) · 2026-11-19T08:20
+- [再爆: 黄乐把黄仁勋的算力卖给了谁，背后牵出中国军方（精彩主题）/新闻8分钟](https://youtu.be/dhBziAeXUBU) · 2026-11-19T07:52
+- [阿里巴巴与中国军方AI研究网络曝光/王剑每日观察 #shortsfeed #shortsvideo #shortsviral](https://youtu.be/5BiN2dHq3hA) · 2026-11-19T06:18
+- [黄仁勋又牵出和中国军方的关系/王剑每日观察 #shortsfeed #shortsviral #shortsvideo](https://youtu.be/HUK4Zg0jIXE) · 2026-11-19T06:14
+- [黄乐背后的买家是谁？/王剑每日观察 #shortsfeed #shortsvideo #shortsviral](https://youtu.be/lrCdbF0RFm4) · 2026-11-19T06:02
+- [深圳三方峰会，赢家是习近平和普京/王剑每日观察 #shortsfeed #shortsviral #shortsvideo](https://youtu.be/Y25CrcZmm3k) · 2026-11-19T05:58
+- [川普向中俄示好 换来什么？/王剑每日观察 #shortsfeed #shortsviral #shortsvideo](https://youtu.be/4n80HG1khv8) · 2026-11-19T05:54
+- [台湾选举前夕 中共认知战瞄准民主制度/王剑每日观察 #shortsfeed #shortsviral #shortsvideo](https://youtu.be/uaYSBxQQF2s) · 2026-11-19T05:44
+- [APEC峰会下的深圳：繁华都市变空城/王剑每日观察 #shortsfeed #shortsvideo #shortsviral](https://youtu.be/cLw1WliOSYQ) · 2026-11-19T05:35
+- [纽约时报再爆：黄乐把黄仁勋的算力卖给了谁？/马斯克开始与MAGA保持距离/APEC中的深圳什么样子？/王剑每日观察/20261118](https://youtu.be/hnkI-4mI0KY) · 2026-11-19T05:20
+- [马斯克后悔砸钱助选，公开切割MAGA！/王剑每日观察 #shortsfeed #shortsvideo #shortsviral #shortvideo](https://youtu.be/t5mDFY5B8EI) · 2026-11-19T03:13
+- [珠海华发债务危机 地方政府千亿救火/王剑每日观察 #shortsfeed #shortsvideo #shortsviral](https://youtu.be/MDcd5slPYLQ) · 2026-11-18T19:02
+- [美国留学生迎来两大利好 川普新规连遭法院阻止/王剑每日观察 #shortsfeed #shortsvideo #shortsviral](https://youtu.be/hLqnWrO7kKA) · 2026-11-18T18:58
+- [袁家军突然公开露面 被查传闻平息了吗？/王剑每日观察 #shortsfeed #shortsvideo #shortsviral](https://youtu.be/t_9ahLRyMLc) · 2026-11-18T18:56
 
 ## 消失的國界│從台灣看見世界的故事（15）
-- [APEC峰會淪中國科技大秀場？深圳街頭上演機器人格鬥 川普與高市早苗任內首出席Quad峰會！拍板2027年海上聯合軍演牽制北京｜消失的國界](https://youtu.be/GaJzyH1jcws) · 2026-11-18T08:00
-- [日本餐飲業掀起前置作業外包熱潮！拉麵店炒飯外包 成功減輕人力負擔 新型態營運模式成趨勢｜消失的國界](https://youtu.be/fKRzHLTIsUc) · 2026-11-18T07:00
-- [乾爹快回來救台股！股民衝台南拜拐杖月老幫黃仁勳斬爛桃花 網笑：小股民謝謝你｜消失的國界](https://youtu.be/bK7reECN48k) · 2026-11-18T06:51
-- [全球半導體權力重洗牌！美國輝達高層人事大地震 代理CEO證實晶片策略全面轉向｜消失的國界](https://youtu.be/iSyYQpWhYZw) · 2026-11-18T06:31
-- [11/28領領投！投票流程一次搞懂！](https://youtu.be/zRtOt4aiehE) · 2026-11-18T06:23
-- [首次沒有黃仁勳的輝達財報！代理執行長克雷斯扛重任 單季營收衝上1160億美元創歷史新高 打破Vera Rubin延後出貨傳言！台灣供應鏈扮演最強定海神針｜消失的國界](https://youtu.be/HCyydgo_MT4) · 2026-11-18T06:00
-- [APEC成中國科技秀場！深圳機器人廣場群舞兼鐵籠格鬥 迎賓花招百出｜消失的國界](https://youtu.be/bBuAN7WSYlY) · 2026-11-18T05:23
-- [川普收緊移民政策遣返近百萬人 偷渡費暴漲十倍 逾7萬人轉留墨西哥求庇護｜消失的國界](https://youtu.be/ndgVyqekd4c) · 2026-11-18T05:22
-- [日美澳印Quad峰會抗中 反對改變區域現狀 川普：習近平必提台灣我不用提｜消失的國界](https://youtu.be/kqGrLJKxflU) · 2026-11-18T04:49
-- [黃仁勳想回鍋遭董事會打槍！輝達已在找新CEO 代理執行長喊H200停賣中國｜消失的國界](https://youtu.be/8SXaZgppzVg) · 2026-11-18T04:47
-- [深圳APEC掀地緣角力！普丁抵達、馬斯克出席 黃仁勳案發酵CNN報導遭北京斷訊  ｜消失的國界](https://youtu.be/quokD9Vp3kk) · 2026-11-18T02:58
-- [美AI基建年燒逾26兆台幣 資本支出3年暴增5倍 AI泡沫警報拉響? 聯準會首度推演3大災難劇本｜消失的國界](https://youtu.be/qDSuOUgEDo8) · 2026-11-17T12:09
-- [全球供應鏈加速「去中化」？憂北京把經濟依賴變武器　日本搶稀土、德國分散貿易　美日菲打造「非紅供應鏈」｜消失的國界](https://youtu.be/kUCg2OQDs80) · 2026-11-17T12:00
-- [目睹無人機攻擊！防空警報狂響 GPS全失效 直擊烏克蘭學生的”地下碉堡”日常｜卓越新聞獎入圍精選｜【消失的國界】20261117｜#三立新聞](https://youtu.be/O2IreqBHYO4) · 2026-11-17T12:00
-- [台日韓同日遭進逼! 2架俄軍機APEC前侵擾 APEC前夕聯中威嚇! 2俄軍機"闖台韓ADIZ.日領空" ｜消失的國界](https://youtu.be/xA2rArAfZvA) · 2026-11-17T11:51
+- [APEC晚宴大合照「站位藏玄機」？就不讓你站C位？不甘不願被習近平請去旁邊 普丁表情變化全曝光！｜消失的國界](https://youtu.be/RGquFtTCGgQ) · 2026-11-19T08:15
+- [APEC峰會歷史性畫面！施振榮接連與川普、普丁握手寒暄　美中俄三巨頭同框合影！高市早苗向習近平耳語數秒　 下午三方會談備受矚目!｜消失的國界](https://youtu.be/PHCQVqiM4co) · 2026-11-19T07:00
+- [軍事迷全緊盯！美製V-BAT艦載無人機現身｜消失的國界](https://youtu.be/8kKFu2CeyPw) · 2026-11-19T06:23
+- [改寫全球AI資本版圖！Anthropic超車SpaceX創史上最大IPO 牽動供應鏈資金流向｜消失的國界](https://youtu.be/rn5_jEFS4bo) · 2026-11-19T05:41
+- [預購吸金破15億美元！GTA 6掀全球電玩狂潮 杜拜排隊搶購、紐澳搶先開玩｜消失的國界](https://youtu.be/wKY37dnSr5U) · 2026-11-19T05:39
+- [聖嬰現象重擊美東西岸！佛州暴雨成災進緊急狀態 加州掀18公尺巨浪暴雪｜消失的國界](https://youtu.be/DboBLCvu0zM) · 2026-11-19T05:39
+- [凱特抗癌後海外首訪合體威廉！親駕電動三輪車力推印度綠色交通並拜會莫迪   ｜消失的國界](https://youtu.be/155LkzpbP9E) · 2026-11-19T05:38
+- [APEC晚宴「站位藏玄機」！習近平主動與施振榮握手合影　川普、普丁站第一排C位！台灣代表位居後排最左側　高市早苗也站第二排｜消失的國界](https://youtu.be/KU3NTe2Z_dM) · 2026-11-19T05:30
+- [海上煉獄！荷姆茲海峽LPG船「連2天遭襲」狂炸陷火海　黑煙直竄天際！24船員逃出生天、1人失蹤　船隻漂流恐成海上炸彈？｜消失的國界](https://youtu.be/vCimxPifu9U) · 2026-11-19T05:07
+- [習近平APEC喊話各國攜手合作：秉持開放區域主義！促進自由貿易.經濟發展 習近平APEC談搭建亞太共同體"四梁八柱"｜消失的國界](https://youtu.be/jah5OnCpKCA) · 2026-11-19T04:30
+- [習近平罕見親迎川普！空軍一號抵深圳「儀仗隊、樂隊」高規格接待　美中俄三巨頭APEC晚宴同框！ 高市早苗與習近平互動冷？美日接機陣仗差很大！｜消失的國界](https://youtu.be/ifyFuHmjxrg) · 2026-11-19T03:30
+- [美中俄三方會前 俄媒高調曝光普丁"核武手提箱" 時間點敏感!普丁隨行人員 大方證實"就是那個手提箱" 馬斯克現身美代表團車隊 PO文遭疑暗指美中關係｜消失的國界](https://youtu.be/ODY6WUH_WTo) · 2026-11-19T01:40
+- [多國元首獲歌舞迎 高市"規模縮水"接機冷 "台灣有事"餘波盪漾 高市早苗訪中遭冷遇  日中急凍難解 晚宴前高市.習近平短暫握手｜消失的國界](https://youtu.be/IaTEp_A7JeE) · 2026-11-19T01:35
+- [深圳APEC晚宴登場 美俄中元首同框亮相 現場樂隊演奏迎川普 高市習近平互動冷 美日接機陣仗明顯落差 習近平罕見親迎川普｜消失的國界](https://youtu.be/xIxq39xWXXE) · 2026-11-19T01:13
+- [輝達政策急轉彎！代理執行長克瑞斯宣布停止對中供應H200晶片 下台後仍握有公司關鍵影響力！黃仁勳持股逾3.5%保有董事提名權 依舊可提名2名輝達董事｜消失的國界](https://youtu.be/Uz3RTEKpvRg) · 2026-11-18T14:00
 
-## 王剑每日观察Kim's Observation（15）
-- [英伟达停止对华芯片销售 5180亿美元承诺暗藏风险/王剑每日观察 #shortsfeed #shortsvideo #shortsviral](https://youtu.be/bNcOtUfGNdY) · 2026-11-18T07:49
-- [黄仁勋将首次公开接受美国国会质询/王剑每日观察 #shortsfeed #shortsvideo #shortsviral](https://youtu.be/EFQx5Y-UiYU) · 2026-11-18T07:37
-- [北京误判形势 习近平高估了美国退让的意愿/王剑每日观察 #shortsfeed #shortsvideo #shortsviral](https://youtu.be/i777H-3w1B8) · 2026-11-18T07:13
-- [重庆市委书记袁家军也出事了？/王剑每日观察 #shortsfeed #shortsvideo #shortsviral](https://youtu.be/GpS5RMqy7fo) · 2026-11-18T07:02
-- [中国房价持续下跌 五年库存压顶/王剑每日观察 #shortsfeed #shortsvideo #shortsviral](https://youtu.be/HmnC8YMKXAU) · 2026-11-18T06:44
-- [美日印澳四国联手 军事科技全面围堵中国/王剑每日观察 #shortsfeed #shortsvideo #shortsviral](https://youtu.be/fp8XvsiCMbw) · 2026-11-18T06:41
-- [芯片美元取代石油美元  美国正在建立新的财富循环/王剑每日观察 #shortsfeed #shortsvideo #shortsviral](https://youtu.be/QdFjkXQ84pI) · 2026-11-18T06:34
-- [重庆市委书记袁家军也出事了？/董事会拒绝黄仁勋回锅 英伟达停止出口中国H200芯片/芯片美元正取代石油美元/王剑每日观察/20261117](https://youtu.be/qYWmmPoyXG8) · 2026-11-18T06:17
-- [美国封堵中国AI算力通道 北京威胁反制/王剑每日观察 #shortsfeed #shortsvideo #shortsviral](https://youtu.be/WR52z4VmMJE) · 2026-11-18T04:48
-- [美调查记者：英伟达丑闻将更庞大更丑陋/新闻8分钟/王剑每日观察](https://youtu.be/OaDE1bDHG6M) · 2026-11-18T04:19
-- [中美俄三方峰会，现代版雅尔塔会议？/新闻8分钟/王剑每日观察](https://youtu.be/zCszDim-uyU) · 2026-11-18T01:28
-- [深圳峰会新雅尔塔？三大国重新分配世界权力/王剑每日观察 #shortsfeed #shortsvideo #shortsviral](https://youtu.be/WhQnpJC6jCI) · 2026-11-17T21:03
-- [川普搞交易外交 美国盟友警觉担心被出卖/王剑每日观察 #shortsfeed #shortsvideo #shortsviral](https://youtu.be/CbvlNSvAy4g) · 2026-11-17T20:58
-- [深圳峰会最大赢家  普京不战而获外交突破/王剑每日观察 #shortsfeed #shortsvideo #shortsviral](https://youtu.be/zPs9SVtsq0c) · 2026-11-17T20:52
-- [黄仁勋危机远未结束 5305亿资金迷局浮出水面/王剑每日观察 #shortsfeed #shortsvideo #shortsviral](https://youtu.be/Hy7esrHNKjE) · 2026-11-17T20:45
+## English with Us（15）
+- [食物的各种坏了英文都怎么说?(一)#英语口语](https://youtu.be/o3MuqzsbMOY) · 2026-11-19T06:58
+- [祝你发财英文怎么说#英语口语](https://youtu.be/nHU2OdwcC9k) · 2026-11-19T06:11
+- [说到做到英文怎么说#英语口语](https://youtu.be/TTc3mJPkPdU) · 2026-11-19T04:38
+- [宁愿英文怎么说#英语口语](https://youtu.be/Kh6VtoPpuXg) · 2026-11-19T03:53
+- [素质英文怎么说#英语口语](https://youtu.be/6s5LNQcl2Xk) · 2026-11-19T03:18
+- [关于家人的词汇（一）#英语口语](https://youtu.be/A5uFumsnhaU) · 2026-11-19T01:23
+- [快递相关动词短语（一）#英语口语](https://youtu.be/fJNKxB2w40Q) · 2026-11-19T00:49
+- [刻薄英文怎么说#英语口语](https://youtu.be/wl588L1SKxk) · 2026-11-19T00:30
+- [英文中的各种皮都怎么说你会吗？#英语口语](https://youtu.be/V4grQzKqVh0) · 2026-11-18T23:42
+- [这些英文中的一词多义你都会几个？（一）#英语口语](https://youtu.be/aQIz-rKvOnM) · 2026-11-18T22:18
+- [真无聊英文怎么说#英语口语](https://youtu.be/xhL_VBdNdKY) · 2026-11-18T21:07
+- [这些做饭英语怎么说你都会吗？（一）#英语](https://youtu.be/A25ejr54OTU) · 2026-11-18T18:55
+- [教你一个关于ON的万用句式#英语口语](https://youtu.be/F12UXsiljxI) · 2026-11-18T17:35
+- [高低分雅思口语区别（一）#英语口语](https://youtu.be/zXEW-rdMK9k) · 2026-11-18T15:18
+- [最好的英文怎么说#英语口语](https://youtu.be/0eSPaSy_DyM) · 2026-11-18T14:31
 
-## 美国之音中文网（15）
-- [特朗普总统前往深圳参加APEC会议](https://youtu.be/j9fMYzqLtpU) · 2026-11-18T07:00
-- [特朗普与马科斯举行会谈](https://youtu.be/zLzT-pgQ9J0) · 2026-11-18T04:03
-- [特朗普总统会晤菲总统之际 专家谈美国如何平衡美菲合作与对华关系](https://youtu.be/vfIvPVNBLzc) · 2026-11-18T02:56
-- [美国商务部新规定对中国实施算力卡脖子](https://youtu.be/9LF4zJKcYIk) · 2026-11-18T02:01
-- [菲律宾学者：美菲可加强军事合作应对中国挑战](https://youtu.be/GGf1HPVZsgM) · 2026-11-18T01:55
-- [英文字里行间with温乐狄: Silver lining](https://youtu.be/vRzEkojz-rk) · 2026-11-18T01:03
-- [美国之音中文广播 (2026年11月17日) 特朗普总统抵达马尼拉 出席东盟系列峰会；乌克兰袭击导致克里米亚大桥部分坍塌,俄罗斯报告创纪录的1441架无人机袭击](https://youtu.be/PYu-VwV-jPw) · 2026-11-17T23:44
-- [专访藏人行政中央司政边巴次仁：目前与北京政治对话空间有限](https://youtu.be/EzgDhulTh3k) · 2026-11-17T23:30
-- [高雄出席海军部长提名确认听证会誓言提升美军造舰能力](https://youtu.be/M2cUsF3P4xI) · 2026-11-17T23:30
-- [VOA今日焦点 (2026年11月17日) 特习三会 将谈台湾问题 | 黄仁勋打破沉默 同意赴国会作证](https://youtu.be/LqrjgEClDcY) · 2026-11-17T22:16
-- [专访藏人行政中央司政边巴次仁：北京把转世制度当成政治工具](https://youtu.be/dw08xmPS6Pg) · 2026-11-17T21:35
-- [菲律宾隆重欢迎特朗普总统  美国之音记者现场报道](https://youtu.be/80qJjIQIYBM) · 2026-11-17T19:03
-- [特朗普总统在菲律宾出席东盟系列峰会](https://youtu.be/ODni0ageVPc) · 2026-11-17T18:02
-- [总统宣布四方安全对话新合作：联合军演、超级智能与关键矿产](https://youtu.be/VMGdgbdzmgY) · 2026-11-17T14:44
-- [特朗普总统出席美国-东盟晚宴](https://youtu.be/z42PIXrx9-k) · 2026-11-17T13:58
+## 狗狗币大师兄（15）
+- [很多人註冊 Kraken 被卡住，是因為這幾欄填錯了](https://youtu.be/vVujYeyuUJM) · 2026-11-19T02:10
+- [Kraken 裡的歐元不要直接提到香港銀行卡，先轉到 Wise](https://youtu.be/nhrhCpeV_zo) · 2026-11-19T02:10
+- [往 Kraken 轉美元不寫備註，你的錢很可能入不了賬](https://youtu.be/ib653eItBAE) · 2026-11-19T02:10
+- [你的 Kraken 老賬號沒拿到 40% 返現，可以註銷重開](https://youtu.be/iE4UlFNGMFM) · 2026-11-19T02:10
+- [Kraken 把全倉翻譯成了「交叉」，平倉還得反向開單](https://youtu.be/iAwFfY_FrRg) · 2026-11-19T02:10
+- [Kraken 的 Anthropic 打新別期待太高，SpaceX 那次就坑過用戶](https://youtu.be/fnNrj3eQm6Q) · 2026-11-19T02:10
+- [Kraken 的通行密鑰不能存進買來的 Apple ID](https://youtu.be/ZpHoI_PcgwY) · 2026-11-19T02:10
+- [把 USDT 充進 Kraken 後換成美元，手續費是 0](https://youtu.be/YRxJeNEZ0bI) · 2026-11-19T02:10
+- [Kraken 手裡有一張連 Coinbase 都沒有的清算所牌照](https://youtu.be/LWg5CV1ES58) · 2026-11-19T02:09
+- [歐洲交易所被黑客偷起來更狠，所以我只用美資交易所](https://youtu.be/KU1ELtoRDQs) · 2026-11-19T02:09
+- [Kraken 會給你開一個同名 IBAN，錢轉到 Wise 幾乎沒人查](https://youtu.be/GAETlIpc8n0) · 2026-11-19T02:09
+- [用假香港地址開 Coinbase 後患無窮，所以我建議大家都備一個 Kraken](https://youtu.be/EC7qBlMWU60) · 2026-11-19T02:09
+- [Kraken 現貨和合約手續費是多少，疊加 40% 返還後還能再省](https://youtu.be/9-2Rzt3uhWo) · 2026-11-19T02:09
+- [没有香港护照就不要用 Coinbase（香港地址证明肯定不行）](https://youtu.be/8RaxrFkhyBo) · 2026-11-19T02:02
+- [没有黄仁勋的英伟达，12倍市盈率能抄底吗？取决于这4条标准](https://youtu.be/Pj1yI6T4kXg) · 2026-11-18T12:12
 
 ## TEDx Talks（15）
-- [What if you said yes? | Nduati (Robert) Karanja | TEDxArada Live](https://youtu.be/RkfRcG_t_JE) · 2026-11-17T17:51
-- [The Bread Was Never About Bread | Chenrui Zhang | TEDxJLHS Youth](https://youtu.be/ReqgLzZ6_4k) · 2026-11-17T17:15
-- [Make Us the Owner of Gender Norms | Yifan Cao | TEDxJLHS Youth](https://youtu.be/SDSHxRRMUn4) · 2026-11-17T17:15
-- [The future belongs to the most human | Tim David | TEDxWatkins Glen](https://youtu.be/eOSFLl5fdWU) · 2026-11-17T17:14
-- [Sobrevivi ao Feminicídio da Minha Mãe  | Ianca Alves | TEDxSete Lagoas](https://youtu.be/hCq-Ymlk2wY) · 2026-11-17T17:14
-- [Is Traveling the Best Way to Broaden Our Horizons? | Shiman Fang | TEDxJLHS Youth](https://youtu.be/dpJV2SxVi58) · 2026-11-17T17:13
-- [Honor the Hesitation in the Darkness | Chen Ji | TEDxJLHS Youth](https://youtu.be/m3XkNRebe30) · 2026-11-17T17:13
-- [How to Prove You Are a Human? | Yi Tian | TEDxJLHS Youth](https://youtu.be/QlX0dUS3CgE) · 2026-11-17T17:13
-- [It's Just Patrick! | Gengyuan Ye | TEDxJLHS Youth](https://youtu.be/l3aDURvIwKw) · 2026-11-17T17:13
-- [Sintonizzati altrove | Francesco Sbraccia | TEDxToranoNuovo](https://youtu.be/JnoVR3Cy3Mo) · 2026-11-17T17:13
-- [The importance of art for a thriving society | Sheema Kermani | TEDxDUHS](https://youtu.be/Tmxwz9R_WNU) · 2026-11-17T17:09
-- [Brushing the strokes of recovery: What my mirror taught me | Rabika Tahir | TEDxDUHS](https://youtu.be/A83L5kGAItM) · 2026-11-17T17:09
-- [Beyond the Frame — The "Unseen" Kills | Chunkai Yang | TEDxJLHS Youth](https://youtu.be/kSu_7Fa2OcE) · 2026-11-17T17:08
-- [The Joy of a Meaningful Life | Yasser Al-Hozaimi | TEDxAl Raed](https://youtu.be/OdWGRYlysuM) · 2026-11-17T17:08
-- [Know Thyself | Soad Lotfy | TEDxBISM Youth](https://youtu.be/dRU3URjZeiM) · 2026-11-17T17:07
+- [Why do we ask questions? #shorts #tedx](https://youtu.be/dpR8OuQ8mCg) · 2026-11-18T18:00
+- [Mitochondria: How communication shapes our future | Corina Madreiter-Sokolowski | TEDxMedUniGraz](https://youtu.be/AXnNoxJ30QU) · 2026-11-18T17:42
+- [From Helped to Helpers: Rewriting Ability | Moses Chowdari Gorrepati | TEDxKLH University Bowrampet](https://youtu.be/06hUrtT0_6Q) · 2026-11-18T17:20
+- [Kendi Özgün Yolunu İnşa Etmek, Sağlam Temelli Hayatı İnşa Etmektir | Sevil AKI SANER | TEDxAtapark](https://youtu.be/I6OnOpJFHJs) · 2026-11-18T17:17
+- [Jak cyfryzacja dookoła wpływa na komunikacje interpersonalną? | Aleksandra Szczepaniak | TEDxUWr](https://youtu.be/9JCQColZ8nw) · 2026-11-18T17:17
+- [Başla, Gör ve Bitir | Enes EFENDİOĞLU | TEDxAtapark](https://youtu.be/iq_rRGlXqgo) · 2026-11-18T17:17
+- [Kendin Hakkında Bilmediğin Ne Var? | Begüm KOCAEFE | TEDxAtapark](https://youtu.be/okb4GwYP7Sw) · 2026-11-18T17:16
+- [The Courage to Be a Beginner Again | Tom Solo | TEDxEssen](https://youtu.be/LhfgmoXm7BI) · 2026-11-18T17:16
+- [Bildiklerini Küçümseme Hikayen Orada Başlıyor | Ayşe ŞEN ŞİMŞEK | TEDxAtapark](https://youtu.be/dVylpzl5fpE) · 2026-11-18T17:16
+- [How to Alchemize Stigma within a Falling Sky  | Skye Berger | TEDxGary](https://youtu.be/GOJlsVbFGXM) · 2026-11-18T17:15
+- [Visible Stories Can Create Space For Other Voices | Kristen Zamora | TEDxGary](https://youtu.be/o2rcoJ81hJc) · 2026-11-18T17:15
+- [From One Frame to Twenty-Four: Unbroken Passion | Phani Gogireddy | TEDxKLH University Bowrampet](https://youtu.be/Q1_qrWMmeh0) · 2026-11-18T17:14
+- [When Everyone Walks Away, Build Anyway | Madhulash Babu Krovvidi | TEDxKLH University Bowrampet](https://youtu.be/lP_lDWVTJWM) · 2026-11-18T17:13
+- [Are We Raising the Next Generation or Shaping Its Problems? | SVSU  | Neera Paritosh | TEDxSVSU](https://youtu.be/ewLOeMRjDt8) · 2026-11-18T17:12
+- [The Power of Unspoken History | Krishanaa Mahtani | TEDxKGV School Youth](https://youtu.be/Lydg7kZxdKQ) · 2026-11-18T17:12
 
-## VS MEDIA Taiwan（10）
-- [Toyz直播大談會被取消假釋？網：會關回去嗎？律師點出關鍵｜VS MEDIAｘ@vvnews-vl3xf](https://youtu.be/tlXK9s6YVQQ) · 2026-11-18T08:00
-- [黃仁勳親自表態願重返執行長！半天3千萬觀看！這天是關鍵日｜VS MEDIAｘ@vvnews-vl3xf](https://youtu.be/2Wg3SAlrDUA) · 2026-11-18T07:00
-- [我的錢包急需輸送鈔票 #搞笑｜VS MEDIAｘ雅竹Luobo🌻](https://youtu.be/UHec_gM6SyI) · 2026-11-18T06:30
-- [德國人沒在喝的牛奶紅遍中國？被央視罵假洋牌反而更熱賣！？｜VS MEDIAｘ@nishizaigong3small](https://youtu.be/Gqgeu1ovBUs) · 2026-11-18T05:00
-- [因為農夫身份被解除配對？農夫QA分享感情與返鄉生活！｜VS MEDIAｘ@kevin返鄉日誌](https://youtu.be/D4K3741xpAU) · 2026-11-18T04:00
-- [沒有工作真的能變更快樂嗎？自由時間太多為何讓人更焦慮？｜VS MEDIAｘ@Yen-Liang](https://youtu.be/SmwCVJgRgvI) · 2026-11-18T01:00
-- [本性外露 #真實｜VS MEDIAｘ@angelineee.724](https://youtu.be/t5WEC_7k3uk) · 2026-11-17T14:30
-- [為省租金住進鬧鬼墳景房？紅衣女鬼半夜現身狂抓小孩？｜VS MEDIAｘ@StarGhostStory](https://youtu.be/EAYNjMCYi3k) · 2026-11-17T14:00
-- [花錢買電動車電池卻不是你的？揭gogoro換電背後的商業算計！｜VS MEDIAｘ@jackypatent](https://youtu.be/PSpy_ZMuMTs) · 2026-11-17T13:00
-- [蔣萬安vs沈伯洋都更政策誰更好？房產專家解析雙方政見｜VS MEDIAｘ@superzack](https://youtu.be/Q7kxJv4xXJg) · 2026-11-17T12:00
+## 美国之音中文网（14）
+- [美中俄历史性峰会特别报道](https://youtu.be/mfXABXqunn4) · 2026-11-19T08:05
+- [特朗普总统和中国国家主席习近平举行双边会谈](https://youtu.be/uKQItGjGJts) · 2026-11-19T07:31
+- [APEC“特习会”特别报道](https://youtu.be/yfkR53O8FKI) · 2026-11-19T06:08
+- [APEC领导人合影](https://youtu.be/yKNyNbUGytA) · 2026-11-19T03:02
+- [美国之音中文广播 (2026年11月18日) 特习三会，特朗普“确信”习近平会提台湾 专家认为会谈难有实质变化；美国官员排除近期美国科技系统宕机事件为协同网络攻击所致 - 11月 19日,2026年](https://youtu.be/j_41oiS9gwk) · 2026-11-18T23:54
+- [美中俄三方会谈在即 美国国会议员有何期待？](https://youtu.be/I7xA65ieODI) · 2026-11-18T23:49
+- [VOA今日焦点 (2026年11月18日) 特朗普总统出席APEC会议 美中俄三方会谈聚焦核武问题](https://youtu.be/NFtL6mmevJo) · 2026-11-18T22:17
+- [美国国家情报总监：超级智能正改变网络安全格局](https://youtu.be/USLFgHFtN_A) · 2026-11-18T22:08
+- [深圳市民围观特朗普总统车队  直呼“像中彩票”](https://youtu.be/sd7-K_mbe28) · 2026-11-18T21:06
+- [美国空军首批永久部署的F-15EX“鹰II”式战斗机抵达嘉手纳空军基地](https://youtu.be/rxYm07TfoRs) · 2026-11-18T20:26
+- [专访美国务院中文发言人 特朗普总统或在美中俄三方会谈讨论无核化问题](https://youtu.be/vTh1ttAZLRw) · 2026-11-18T17:19
+- [特朗普总统抵达深圳出席APEC会议 美中俄三方会谈聚焦核武问题](https://youtu.be/8YdM-NY-AkA) · 2026-11-18T17:17
+- [美中俄三国领导人深圳同框  引发“新雅尔塔会议”联想](https://youtu.be/nntzVg1E8Rk) · 2026-11-18T12:39
+- [替北京传话？台湾前政要倡议2032年两岸统一货币](https://youtu.be/q12OiyJL8fs) · 2026-11-18T12:17
 
-## English with Us（10）
-- [开玩笑的英文怎么说#英语口语](https://youtu.be/H9C9qVZo1oc) · 2026-11-18T02:49
-- [不要烦我英文怎么说#英语口语](https://youtu.be/Otao4VvDXfU) · 2026-11-18T02:04
-- [误会我英文怎么说？#英语口语](https://youtu.be/OSsAmersAA0) · 2026-11-17T23:48
-- [各种蛋在英文中都怎么说？（一）#英语口语](https://youtu.be/DXPzrg-6000) · 2026-11-17T21:04
-- [你敢英文怎么说?#英语口语](https://youtu.be/OyWRi-HKPNY) · 2026-11-17T19:54
-- [当你觉得英文很重要(一)#英语口语](https://youtu.be/YqKbN2cxgVs) · 2026-11-17T15:33
-- [支持你英文怎么说?#英语口语](https://youtu.be/d4IzJKkqqnk) · 2026-11-17T15:16
-- [Para构成的词都是多疑的意思吗？|每日带你背单词|英语学习](https://youtu.be/DuorovVcjJA) · 2026-11-17T14:30
-- [靠谱英文怎么说？#英语口语](https://youtu.be/_QObjJAtx1I) · 2026-11-17T13:52
-- [沉浸式每天十分钟英语播客听读（七）-A1-B2水平-美国最高频日常用语5000句|磨耳朵睡眠播放效果更好](https://youtu.be/pAB0mMH8NPo) · 2026-11-17T13:30
+## 全民話燒（14）
+- [384天看千個監視器檔案追真相　狼師案受害家長向阿苗淚訴｜#全民話燒](https://youtu.be/4O-fsOCYJro) · 2026-11-19T08:00
+- [384天看千個監視器檔案追真相　狼師案受害家長向阿苗淚訴｜#全民話燒](https://youtu.be/Nek5AXbEc_0) · 2026-11-19T07:55
+- [柯文哲受訪舉起電子手環　大嗆：看了就知道不投給誰｜#全民話燒](https://youtu.be/pKME4jdN1IE) · 2026-11-19T07:32
+- [柯文哲受訪舉起電子手環　大嗆：看了就知道不投給誰｜#全民話燒](https://youtu.be/m7lBzIShl5M) · 2026-11-19T07:30
+- [沈伯洋赴濱江市場掃街　與毛小孩溫馨擊掌、簽名｜#全民話燒](https://youtu.be/llXvgHZb-OI) · 2026-11-19T05:00
+- [柯文哲稱小草絕不投他　沈伯洋：每個人都是獨立個體｜#全民話燒](https://youtu.be/1Doohjxy_4g) · 2026-11-19T04:00
+- [遭易燃物告白"你是我政治初戀"　蔡英文聽後指蘇巧慧笑回1話｜#全民話燒](https://youtu.be/S1sWJP8eQ_Y) · 2026-11-19T03:54
+- [遭易燃物告白"你是我政治初戀"　蔡英文聽後指蘇巧慧笑回1話｜#全民話燒](https://youtu.be/bByZ8YAxyBQ) · 2026-11-19T03:54
+- [陳智菡昔嘲笑手語「北七」　沈伯洋：政治人物該做榜樣｜#全民話燒](https://youtu.be/jURVK_WNpzA) · 2026-11-19T03:45
+- [沈伯洋暖與聽障者手語溝通　談陳智菡曾嘲北七順起來這麼說｜#全民話燒](https://youtu.be/LM92J_ZOusg) · 2026-11-19T02:59
+- [沈伯洋暖與聽障者手語溝通　談陳智菡曾嘲北七順起來這麼說｜#全民話燒](https://youtu.be/TEAfNi9tzaE) · 2026-11-19T02:57
+- [家家戶戶信箱驚見蝴蝶！背後巧思曝網讚翻｜#全民話燒](https://youtu.be/W2lUUxA1Zto) · 2026-11-19T00:38
+- [遇關渡造勢昏迷阿伯致謝？沈伯洋澄清「這事」｜#全民話燒](https://youtu.be/g4TazOx2GJA) · 2026-11-19T00:21
+- [關渡造勢受傷阿伯現身　沈伯洋緊握雙手一臉不捨｜#全民話燒](https://youtu.be/4aZXxv-sV6w) · 2026-11-19T00:16
 
-## 蘇宏生（8）
-- [【昴宿星】❤️『窮』怕了嗎？解鎖宇宙「無限豐盛」的終極秘密！ ❤ 昴宿星光之使者與傳訊者蘇宏生，一起為您服務。#昴宿星 #覺醒 #開悟 #豐盛 #財富 #顯化 #namaste #星際種子](https://youtu.be/XX8ksJ-cQEk) · 2026-11-18T00:28
-- [【昴宿星】內在就是造物主  ❤ 昴宿星光之使者與傳訊者蘇宏生，一起為您服務。#昴宿星 #覺醒 #開悟 #豐盛 #財富 #顯化 #namaste #星際種子](https://youtu.be/QTSxibPHqJk) · 2026-11-17T13:45
-- [【昴宿星】回歸本源 ❤ 昴宿星光之使者與傳訊者蘇宏生，一起為您服務。#昴宿星 #覺醒 #開悟 #豐盛 #財富 #顯化 #namaste #星際種子](https://youtu.be/oex_rzsY7k4) · 2026-11-17T13:30
-- [【昴宿星】浪花，每一朵長不一樣，但本質都是海 ❤ 昴宿星光之使者與傳訊者蘇宏生，一起為您服務。#昴宿星 #覺醒 #開悟 #豐盛 #財富 #顯化 #namaste #星際種子](https://youtu.be/GIiaGF170AY) · 2026-11-17T13:15
-- [【昴宿星】宣告真實存在的力量 ❤ 昴宿星光之使者與傳訊者蘇宏生，一起為您服務。#昴宿星 #覺醒 #開悟 #豐盛 #財富 #顯化 #namaste #星際種子](https://youtu.be/pqDqNuv5xtA) · 2026-11-17T13:00
-- [【昴宿星】 覺察永恒的方法❤ 昴宿星光之使者與傳訊者蘇宏生，一起為您服務。#昴宿星 #覺醒 #開悟 #豐盛 #財富 #顯化 #namaste #星際種子](https://youtu.be/m2L1_RZbHHM) · 2026-11-17T13:00
-- [【昴宿星】這樣做，創造好命運 ❤ 昴宿星光之使者與傳訊者蘇宏生，一起為您服務。#昴宿星 #覺醒 #開悟 #豐盛 #財富 #顯化 #namaste #星際種子](https://youtu.be/zBVhz07XZQk) · 2026-11-17T12:45
-- [【昴宿星】念頭不是覺知  ❤ 昴宿星光之使者與傳訊者蘇宏生，一起為您服務。#昴宿星 #覺醒 #開悟 #豐盛 #財富 #顯化 #namaste #星際種子](https://youtu.be/meWl1qVNef0) · 2026-11-17T12:30
+## BBC News 中文（11）
+- [教宗良十四世向群眾揮手時 遭念珠擊中臉部－ BBC News 中文](https://youtu.be/DvINL4MFlK0) · 2026-11-19T08:00
+- [特朗普會見普京：「這是我的朋友」－ BBC News 中文](https://youtu.be/nIkLevkDg5o) · 2026-11-19T06:40
+- [APEC深圳峰會週邊「習特會」與「習普會」登場 － BBC News 中文](https://youtu.be/cH1qYrs3UPY) · 2026-11-19T06:05
+- [習近平APEC演講時  特朗普閉上雙眼－ BBC News 中文](https://youtu.be/xrT7sRKwgGc) · 2026-11-19T05:21
+- [金正恩女兒滑雪畫面曝光－ BBC News 中文 #北韓  #金正恩](https://youtu.be/1opo7Y3RSXw) · 2026-11-19T05:00
+- [特朗普抵達深圳參加APEC  民眾街頭「追星」－ BBC News 中文](https://youtu.be/5rBKMWn7KGo) · 2026-11-19T03:41
+- [APEC深圳峰會：各國領導人合照並出席會議 － BBC News 中文](https://youtu.be/DG2Se0a6B_Y) · 2026-11-19T03:22
+- [高市早苗首次訪華  與習近平握手－ BBC News 中文](https://youtu.be/WPyYkRhPuxE) · 2026-11-19T02:35
+- [特朗普、習近平與普京APEC峰會前握手－ BBC News 中文](https://youtu.be/M8TR3gRdQLc) · 2026-11-19T01:59
+- [中美俄元首三邊會談在APEC深圳峰會週邊舉行 － BBC News 中文](https://youtu.be/74s64dyd5bk) · 2026-11-18T13:55
+- [迎接GTA 6登場 粉絲扮演經典角色－ BBC News 中文 #gta #gta6](https://youtu.be/rZty5xHZDXg) · 2026-11-18T13:00
+
+## 蘇宏生（10）
+- [【昴宿星】❤️別再用肉眼看世界，你其實擁有多元感官 ❤ 昴宿星光之使者與傳訊者蘇宏生，一起為您服務。#昴宿星 #覺醒 #開悟 #豐盛 #財富 #顯化 #namaste #星際種子](https://youtu.be/nSDWPvesm9g) · 2026-11-18T23:48
+- [【昴宿星】❤️停止向外求，活在恩典中  ❤ 昴宿星光之使者與傳訊者蘇宏生，一起為您服務。#昴宿星 #覺醒 #開悟 #豐盛 #財富 #顯化 #namaste #星際種子](https://youtu.be/RBlI9_NTgwI) · 2026-11-18T23:43
+- [【昴宿星】打破框架，體驗本然的自己 ❤ 昴宿星光之使者與傳訊者蘇宏生，一起為您服務。#昴宿星 #覺醒 #開悟 #豐盛 #財富 #顯化 #namaste #星際種子](https://youtu.be/Ag1mqJKIq-M) · 2026-11-18T14:00
+- [【昴宿星】內在的合一本來就在，只是用眼睛看不到 ❤ 昴宿星光之使者與傳訊者蘇宏生，一起為您服務。#昴宿星 #覺醒 #開悟 #豐盛 #財富 #顯化 #namaste #星際種子](https://youtu.be/vEChBalm1PU) · 2026-11-18T13:45
+- [【昴宿星】❤️與造物主同頻,生活中錨定宇宙本源的頻率 ❤ 昴宿星光之使者與傳訊者蘇宏生，一起為您服務。#昴宿星 #覺醒 #開悟 #豐盛 #財富 #顯化 #namaste #星際種子](https://youtu.be/a5JLi6Zlm7I) · 2026-11-18T13:30
+- [【昴宿星】無為無形，傳遞光與愛 ❤ 昴宿星光之使者與傳訊者蘇宏生，一起為您服務。#昴宿星 #覺醒 #開悟 #豐盛 #財富 #顯化 #namaste #星際種子](https://youtu.be/3oAQMgzTdg8) · 2026-11-18T13:30
+- [【昴宿星】 道 ❤ 昴宿星光之使者與傳訊者蘇宏生，一起為您服務。#昴宿星 #覺醒 #開悟 #豐盛 #財富 #顯化 #namaste #星際種子](https://youtu.be/8GneN7-SYsg) · 2026-11-18T13:15
+- [【昴宿星】我們是個小宇宙  ❤ 昴宿星光之使者與傳訊者蘇宏生，一起為您服務。#昴宿星 #覺醒 #開悟 #豐盛 #財富 #顯化 #namaste #星際種子](https://youtu.be/EQ2efUzVdrc) · 2026-11-18T13:00
+- [【昴宿星】7高頻連結.啟動無限創造 ❤ 昴宿星光之使者與傳訊者蘇宏生，一起為您服務。#昴宿星 #覺醒 #開悟 #豐盛 #財富 #顯化 #namaste #星際種子](https://youtu.be/BMmc8oHrGV0) · 2026-11-18T12:45
+- [【昴宿星】相信每個人內在都有力量 ❤ 昴宿星光之使者與傳訊者蘇宏生，一起為您服務。#昴宿星 #覺醒 #開悟 #豐盛 #財富 #顯化 #namaste #星際種子](https://youtu.be/UzELL8QF1yw) · 2026-11-18T12:30
+
+## VS MEDIA Taiwan（9）
+- [網紅壹加壹突宣布暫停更新？粉絲見衣角「這亮點」秒懂！｜VS MEDIAｘ@vvnews-vl3xf](https://youtu.be/CI1gkjYqZdU) · 2026-11-19T08:00
+- [五月天休團4個月阿信突單飛？ 推新曲團員全洗牌發文曝心境！｜VS MEDIAｘ@vvnews-vl3xf](https://youtu.be/pOmRhbpkea8) · 2026-11-19T07:00
+- [這裡是什麼鬼地方！ #路痴 ｜VS MEDIAｘ𝐕𝐕𝐚𝐧𝐧𝐚](https://youtu.be/DZlA6ccHMsc) · 2026-11-19T06:30
+- [《薩爾達傳說：時之笛》為何好玩？用「減法」設計完勝現代3A大作！｜VS MEDIAｘ@阿鬼搞甚麼鬼](https://youtu.be/iZCfksEvM9Q) · 2026-11-19T05:00
+- [迪士尼郵輪探險號4天3夜心得 開箱最便宜禮賓房優缺點大公開｜VS MEDIAｘ@nitadaisdaily1637](https://youtu.be/IeycP5eWh6Q) · 2026-11-19T04:00
+- [黃仁勳辭職前只能排第40名？全球CEO年薪排行榜大公開！｜VS MEDIAｘ@DataAlchemist](https://youtu.be/AZ7-HQqlC1c) · 2026-11-19T01:00
+- [有時候都會懷疑閨蜜的眼光 #閨蜜 ｜VS MEDIAｘ@angelineee.724 x ANGELINE的闺蜜～](https://youtu.be/Ya_JbLJ4Dzg) · 2026-11-18T14:30
+- [習近平為何連自己人都要端？共軍7巨頭剩2個出事率超高？｜VS MEDIAｘ@mynotebooks](https://youtu.be/F2Zcvlwsr04) · 2026-11-18T14:00
+- [毒駕新罰則上路罰更重有用嗎？ 律師解析新制好壞哪裡有漏洞？｜VS MEDIAｘ@hongda888](https://youtu.be/cj4MefpHXc0) · 2026-11-18T13:00
+
+## 柏格醫生中文 健康知識（6）
+- [柏格醫生 Dr. Berg 揭秘：癌症如何生成與轉移？切斷癌細胞營養、激活自然殺手細胞的11個天然防癌關鍵！](https://youtu.be/KjB8zFqUmNM) · 2026-11-19T06:47
+- [柏格醫生解析：鉀有中毒劑量嗎？「14,000毫克」危險標準、6種禁忌族群與鈉鉀1:4黃金比例！｜Dr. Berg](https://youtu.be/vW02zYZ7OQA) · 2026-11-19T05:21
+- [啟動肝臟自我修復！柏格醫生推薦「7大超級食物」，高效清除體內毒素、改善脂肪肝｜Dr. Berg](https://youtu.be/Bc1u7tk3SHI) · 2026-11-18T21:45
+- [素食最佳維生素B12來源](https://youtu.be/cBTz_4GEhdA) · 2026-11-18T21:30
+- [缺鈣各種原因,自我測試,柏格醫生 Dr Berg](https://youtu.be/M1REqSo3dlQ) · 2026-11-18T21:15
+- [健康增胖增重,吃3種最好澱粉食物,柏格醫生 Dr Berg](https://youtu.be/eBeNtMzKXmU) · 2026-11-18T21:00
 
 ## The Daily Show（6）
-- [Daniel Susskind on Raising Kids in the Age of AI | The Daily Show](https://youtu.be/nZvsuU0-F5Y) · 2026-11-18T04:29
-- [Trump Shrugs Off Nationwide Outages & Iran Is So Pissed They Might Dirty Bomb Him | The Daily Show](https://youtu.be/roK-JOtgEOA) · 2026-11-18T03:00
-- [Vanguard is launching a new way to protect you from adultery-related financial risks #DailyShow](https://youtu.be/ic6dezNg2VM) · 2026-11-18T00:10
-- [So if the U.S. regulates AI, China wins. But if we give tech leaders free rein... China still wins?](https://youtu.be/ksNMznjP6Jg) · 2026-11-17T22:41
-- [There’s only one explanation for the FAA grounding flights on Friday: Biden](https://youtu.be/XvFLMufqB1A) · 2026-11-17T19:02
-- [No one’s weekend plans got more disrupted than Jon Stewart’s](https://youtu.be/-zDNXyVa5bM) · 2026-11-17T16:29
+- [Chloe Radcliffe on Her Comedy Central Stand-up Special “Eyes Down Here” | The Daily Show](https://youtu.be/qNQRioHhI8c) · 2026-11-19T04:32
+- [Peltola Beats Dan Sullivan x2 in Alaska & Manila Gives Trump a Warm "YMCA" Welcome | The Daily Show](https://youtu.be/ORuXRjti77Y) · 2026-11-19T03:00
+- [Think Iran's billboard threat against Trump is bad? Wait till you see what they have for his cabinet](https://youtu.be/m4EfOTJI9LU) · 2026-11-18T22:35
+- [Without AI, how will someone know to reply “thanks” to an email? #dailyshow](https://youtu.be/aRxHBCCZP9M) · 2026-11-18T19:02
+- [Okay! Markwayne Mullin looked into the outages, and a guy said a thing to him that kinda made sense](https://youtu.be/lKWsJYesCqg) · 2026-11-18T16:02
+- [Can Polarized Identical Twins Solve America's Political Divide? Grace Finds Out | The Daily Show](https://youtu.be/srK8GMd89kw) · 2026-11-18T12:18
 
 ## 躺平叔带你了解真正的中国（5）
-- [特朗普与普京这回谁也别笑话谁||一个被小乌狠扇一个被毛拉挑衅](https://youtu.be/vefn0GBmPO4) · 2026-11-18T05:00
-- [中国AI大模型正经历至暗时刻||腰部科技大厂都面临生死考验](https://youtu.be/dd5S2Ke7eAk) · 2026-11-18T05:00
-- [害怕罚款的司机在服务区看到了绝望一幕//治理无方让货车司机困在休息悖论里1](https://youtu.be/VLC1FFJfwWI) · 2026-11-18T03:00
-- [克里米亚大桥被炸普京挨了一大逼兜||欧盟毫不犹豫加大对俄制裁援乌](https://youtu.be/OfF7ZNToLko) · 2026-11-18T01:00
-- [五年少1700 万在校生！大量学校关停学区房逻辑彻底动摇||中国城镇化已完成，未来楼市只有下跌一条路](https://youtu.be/C2qXJBKywQg) · 2026-11-17T13:00
+- [普京与特朗普脸上都火辣辣的互诉委屈||内塔尼亚胡等不及美国了要先动手锤毛拉](https://youtu.be/E0KF2RjS5w4) · 2026-11-19T07:00
+- [东北汽车人正在过最寒冷的冬天||三十年前叫下岗潮现在叫失业潮](https://youtu.be/yrkOdohY2Dg) · 2026-11-19T05:00
+- [一封举报信撕开招投标惊人黑幕//某团伙操纵招投标垄断当地超八成项目1](https://youtu.be/_8koTijlzqg) · 2026-11-19T03:00
+- [桥塌梦碎普京谎言终被现实戳破||莫斯科再遭乌军无人机狂轰滥炸](https://youtu.be/MULmb11Fiwk) · 2026-11-19T01:00
+- [从各项数据看房子见底还早着呢||大量深圳杭州码农面临房子断供](https://youtu.be/SZaKL32LWy4) · 2026-11-18T13:00
 
-## Car Club汽车试驾汇（4）
-- [抢先试驾日产NX7：补齐智能化短板！](https://youtu.be/ymjwToTHajQ) · 2026-11-18T08:05
-- [12.99万的日产NX7绝了：底盘韧、不晕车！](https://youtu.be/Nlmakm8MKV8) · 2026-11-18T08:05
-- [华系三强硬碰硬测试：问界M6 vs 智界RX vs 追光S](https://youtu.be/h7VSfbl-b4k) · 2026-11-17T13:53
-- [试驾吉利星越L Plus：最豪“迈巴吉”来了！](https://youtu.be/zCE8EGZ2k9E) · 2026-11-17T11:51
+## Alan Chen（4）
+- [马斯克改口了：Anthropic可能还要再租10吉瓦 #Shorts](https://youtu.be/04YAB1mAZB8) · 2026-11-19T05:00
+- [星舰连载 第18集｜海边的一块地：为什么是德州最南端](https://youtu.be/0OeogVgVbGY) · 2026-11-19T03:00
+- [代理CEO上电视三秒才眨完一次眼，说话像在念稿！老黄递了台阶，董事会连句客气话都不给？](https://youtu.be/M7mF3RX5eL0) · 2026-11-18T21:42
+- [英伟达一个季度卖了 1158 亿美元，卖的到底是什么？](https://youtu.be/6ZqJyhEUHn0) · 2026-11-18T20:30
 
-## 纪实Talk（4）
-- [癌症看臉就知道？！每天花10秒照鏡子，就能發現癌症訊號！腫瘤專家提醒：這6種變化千萬別忽略！#圆桌派 #许子东 #马家辉 #梁文道  #观复嘟嘟 #马未都 #纪实talk](https://youtu.be/khu4JRTbsTQ) · 2026-11-18T01:00
-- [這三種酒千萬不要喝！白送都別往家裡拿！喝多了最傷身，很多人還在傻傻當成寶貝！#圆桌派 #纪实 #窦文涛 #马家辉 #熱門 #推薦 #第一人称复数 #周轶君 #印度](https://youtu.be/D0qYtAiUums) · 2026-11-17T23:00
-- [冯时将中华文明定义为八千年，因为西方的文明三要素实际上是定义国家，而中国概念体系里的“文明”更重视的是形而上的#窦文涛#周轶君#马未都#许子东#尹烨#圆桌派#圆桌派第八季 #shorts](https://youtu.be/nmdaMWh5wCY) · 2026-11-17T13:00
-- [為何你和家人緣淺？六親緣淺不是命不好！反而是老天在提點你：學會這三件事，人生翻轉、福氣自來！#圆桌派 #纪实 #窦文涛 #马家辉 #熱門 #推薦 #第一人称复数 #周轶君 #印度](https://youtu.be/_uD8vo7_71s) · 2026-11-17T12:00
-
-## 柏格醫生中文 健康知識（4）
-- [補充抗氧化的谷胱甘肽的食物，增加谷胱甘肽的10方法,自然療法,柏格醫生 Dr Berg](https://youtu.be/BXgHyjS1S68) · 2026-11-17T21:45
-- [營養酵母5大營養,如何選？柏格醫生](https://youtu.be/_0ByLZ-6XAs) · 2026-11-17T21:30
-- [哪種堅果最致癌？解毒自然療法,柏格醫生 Dr Berg](https://youtu.be/Ku6c20M_5UA) · 2026-11-17T21:15
-- [扁桃腺結石原因及預防,自然療法,柏格醫生 Dr Berg](https://youtu.be/qClvfkjyI3E) · 2026-11-17T21:00
-
-## 影娱纪实社（4）
-- [冯时讲解根号二这个数字在人类数学史上具有挑战意义，在古希腊毕达哥拉斯学派为此杀了一个人；而在古代中国，同样的发现却没有掀起任何波澜。#shorts#真人秀#犀利吐槽#梁文道#圓桌派#紀實](https://youtu.be/-lYBxFahmVg) · 2026-11-17T13:00
-- [2027金融大洗牌預警！90%存款將被清空？！普通人最難的10年來了，聰明人已經著手做這4件事！#美国 #美联储 #特朗普 #圆桌派 #纪实 #窦文涛 #马未都 #马家辉 #熱門 #推薦 #鸿观](https://youtu.be/zByXYJCwJPk) · 2026-11-17T13:00
-- [梁文道史上最炸裂的一段訪談曝光！句句直戳痛點，徹底顛覆你的認知，真是太敢說了！怪不得會被封鎖！#圆桌派 #许子东 #马家辉 #梁文道  #观复嘟嘟 #马未都 #影娱纪实社](https://youtu.be/rjPl9-y6c2s) · 2026-11-17T12:30
-- [中國方丈碰上泰國高僧，一開口直接被秒殺了！週軼事君當場感嘆：真不愧是佛教發源地！兩地差距這麼大？ ！#他乡的童年 #圆桌派 #文化 #聊天 #纪实 #窦文涛 #马未都 #马家辉 #熱門 #周轶君](https://youtu.be/dmdpPwV-fIo) · 2026-11-17T12:00
-
-## 即录（3）
-- [近一萬噸捕魚巨輪，700公尺大網一次捕撈起噸噸魚](https://youtu.be/6qm3J2QZLHw) · 2026-11-18T08:15
-- [有的手艺传了500年，有的延续数百年，当匠人老去还有谁愿意接过它们](https://youtu.be/TLRylKwhwtw) · 2026-11-18T07:13
-- [雨季湄公河水量暴涨4倍，洪水淹没农田，这里的村民却不囤粮](https://youtu.be/COQZXKEIEk4) · 2026-11-18T06:12
-
-## 箭厂ArrowFactory Doc（3）
-- [CATL’s chairman shares what keeps his team pushing](https://youtu.be/M8vmotmEg6w) · 2026-11-18T08:00
-- [South Korea’s president lands in Shenzhen for APEC](https://youtu.be/SaC4vbgGBjs) · 2026-11-18T03:03
-- [Cyber workers clock in at APEC](https://youtu.be/XmPBQu2ZqjI) · 2026-11-17T12:33
-
-## 王志安 （3）
-- [中国核武器620枚王毅等到1000枚再谈](https://youtu.be/aExt8Jvoolc) · 2026-11-18T07:46
-- [罗大佑的音乐抗争史  ——《所以，明天会更好》](https://youtu.be/w9NvZuGyedY) · 2026-11-18T05:13
-- [深圳APEC前瞻分析｜习近平｜特朗普｜普京｜金正恩｜中美俄峰会｜雅尔塔2.0｜高市早苗｜王局拍案20261117](https://youtu.be/AV8r3qrOpiY) · 2026-11-17T12:00
-
-## 邦妮區塊鏈 Bonnie Blockchain（3）
-- [【最新】黃仁勳打破沉默願回鍋，輝達竟拒絕還去找獵頭？AI體系痛苦瓦解中！【邦妮區塊鏈】](https://youtu.be/WJH5w3Irw98) · 2026-11-18T06:45
-- [首度回應黃仁勳網友評論，短短幾天就把一個人一輩子的成就徹底否定，合理嗎？#黃仁勳 #AI #輝達](https://youtu.be/0gOff49g5gA) · 2026-11-17T14:05
-- [輝達9成員工連署求黃仁勳回來！馬斯克與矽谷大佬集體砲轟：逼走他是全人類的巨大錯誤！](https://youtu.be/MTZIpJtf7RM) · 2026-11-17T13:04
-
-## 诚阅 ChengYue（3）
-- [暗杀泽连斯基？普京强硬要求！](https://youtu.be/tXDhP53Galk) · 2026-11-18T05:27
-- [台湾政客，背刺黄仁勋！](https://youtu.be/o5mMMnY1Vis) · 2026-11-18T00:00
-- [英伟达激烈斗争！DeepSeek突飞猛进](https://youtu.be/-SPWvUz9AZk) · 2026-11-17T13:13
+## 箭厂ArrowFactory Doc（4）
+- [Elon Musk spotted leaving Shenzhen hotel amid APEC meetings](https://youtu.be/dUmOt6MEnfM) · 2026-11-19T02:21
+- [We spotted Tesla CEO Elon Musk leaving The Langham, Shenzhen, shortly before 9 a.m. on Nov. 19, appa](https://youtu.be/OBnRmUwXsx4) · 2026-11-19T01:56
+- [Elon Musk spotted with Trump’s entourage in Shenzhen](https://youtu.be/L4tMj2OnIXs) · 2026-11-18T15:58
+- [What business leaders are talking about at APEC](https://youtu.be/qXr5Rn7pVKE) · 2026-11-18T15:31
 
 ## 蛋小黄（3）
-- [美国家庭财富结构临近拐点？美股资产占比达35%，房产占比27%；美股资产占比上升的空间还有多少？华发终止国内评级，不体检就没病](https://youtu.be/kleaGONFo4A) · 2026-11-18T04:56
-- [国内大龄单身女公务员，为何容易成为受骗对象，这就是例子；男友人设：40岁，年薪70万，没存款的大厂码农，前妻移民加拿大](https://youtu.be/BFCaVsqCzqU) · 2026-11-17T16:08
-- [A股金融消费者，高点以来，人均消费十三万，秃子哥解锁新皮肤；百度李彦宏称，AI应用普及不及预期，若不解决，AI泡沫可能破灭](https://youtu.be/AlKtMTfmScI) · 2026-11-17T14:04
+- [摩根大通称国企不等于绝对安全，明年新房销量还会下滑两到三成；9万一套，杭州有自己的“鹤岗”，网友称自己在环京的房子如今打一折出售](https://youtu.be/YU_vrQD1OMs) · 2026-11-19T05:18
+- [蛋嫂点评Pattinson出任新一代007：天呐，他经历了什么？年入千万的创一代，想以皇帝姿态谈美女，召之即来挥之即去](https://youtu.be/lNYqZZX8I2Y) · 2026-11-18T15:06
+- [还是海外小伙伴会玩，老黄何时王者归来的盘口已开，今年估计没戏；中国AI大模型经历至暗时刻将成新常态了，不挣钱的日子能过多久](https://youtu.be/E5LDwn-tIT4) · 2026-11-18T12:25
 
-## 松明講心理（3）
-- [人生劇本，皆有因果！#人生 #因果 #命運 #覺察 #松明](https://youtu.be/-tkc5VQXg00) · 2026-11-18T04:36
-- [她為何經常和不同的男人發生關係？#兩性 #情感 #心理 #關係 #松明](https://youtu.be/5VJYU5H4L94) · 2026-11-18T04:33
-- [別再自責，先升級認知！#心理 #內耗 #認知 #覺察 #成長 #松明](https://youtu.be/SIfMl5Qb6m0) · 2026-11-17T11:52
-
-## 江峰时刻（3）
-- [APEC前習近平南下，張升民文章絕口不提，南部戰區拒絕會見，喪失軍權的習近平面對美俄兩個都在戰爭中的大國元首腰板直的起來麼？【江峰漫談20261117第1312期】](https://youtu.be/bAin55PuwAQ) · 2026-11-18T04:27
-- [李干傑、李鴻忠、王滬寧表態站隊](https://youtu.be/aoTArr77SJE) · 2026-11-17T17:37
-- [林彪不再健康  包子不再香](https://youtu.be/v_tJfddaVHo) · 2026-11-17T16:35
+## 诚阅 ChengYue（3）
+- [内忧外患！特朗普亚洲行](https://youtu.be/0rob64I2-7A) · 2026-11-19T04:00
+- [APEC峰会！全球聚焦中国](https://youtu.be/QrkGj5qfYm4) · 2026-11-19T00:00
+- [中美俄三巨头！全球聚焦中国](https://youtu.be/TO4Jnnrt3nk) · 2026-11-18T13:27
 
 ## Fashion Channel（3）
-- [ANN DEMEULEMEESTER Spring 2027 Best Looks Paris - Fashion Channel](https://youtu.be/EezlUyxzCqM) · 2026-11-18T03:00
-- [MAREDIMODA 2026: New Visions of Beachwear - Exclusive Interviews - Fashion Channel Chronicle](https://youtu.be/Tr-hhwB0DgM) · 2026-11-17T19:00
-- [STUDIO 4353 Mercedes-Benz Spring 2027 Bucharest](https://youtu.be/52lVhazDv58) · 2026-11-17T14:00
+- [Vintage in Pills HERVÉ LÉGER Spring 2009 New York - Fashion Channel](https://youtu.be/QWYCtwXCsZQ) · 2026-11-19T03:00
+- [CALZEDONIA | Chapter 2 | PARTY COLLECTION 2026](https://youtu.be/w0Ht0f-WhNQ) · 2026-11-18T16:00
+- [RAFAELA PESTRITU Mercedes-Benz Spring 2027 Bucharest](https://youtu.be/yOv-a3qtDX4) · 2026-11-18T14:00
 
-## Amili Huang（3）
-- [My pasta is seriously delicious](https://youtu.be/uOzKiAg9m6U) · 2026-11-18T02:11
-- [I’m such a sun seeker!](https://youtu.be/R7uPouBWMWY) · 2026-11-17T17:41
-- [Good morning!](https://youtu.be/DS9YxryqmZw) · 2026-11-17T13:11
+## 影娱纪实社（3）
+- [许子东认为中国的文化延续性在全世界独一无二，“只是因为最近一两百年这个国家弱，被人家看作是一种弱势的文化”。#shorts#真人秀#犀利吐槽#梁文道#圓桌派#紀實](https://youtu.be/KjkS32vFlEw) · 2026-11-18T13:00
+- [中國人老年癡呆確診人數暴增！多名院士緊急呼籲：再饞也要少吃這幾種食物，危害太大還專門傷腦！ 99%的人天天都在吃！#圆桌派 #许子东 #马家辉 #梁文道  #观复嘟嘟 #马未都 #影娱纪实社](https://youtu.be/mJuQ-d8nZfg) · 2026-11-18T13:00
+- [中餐其實是最不健康的？陳曉卿當眾怒批毫不留情！馬爺全程黑著臉，直言：難怪中國人老了一身病！#圆桌派 #许子东 #马家辉 #梁文道  #观复嘟嘟 #马未都 #影娱纪实社](https://youtu.be/fXSQAlGfdug) · 2026-11-18T12:30
 
-## 上海宁在上海（3）
-- [消失了整整一百年｜给穷人施粥回来了｜南京零元面馆惹祸｜官媒紧急出面表态｜还有人吃不起饭吗｜](https://youtu.be/Sn-IeoWAFO4) · 2026-11-17T23:00
-- [十月社零数据刚出｜金融市场反应激烈｜反差极大｜2027预期｜](https://youtu.be/WAO1CXcR7OE) · 2026-11-17T19:35
-- [网传｜恒隆买奢侈品排长队｜我不信｜实地探访｜这个年头｜不要轻信｜](https://youtu.be/KDmemNpoHw4) · 2026-11-17T16:30
+## Car Club汽车试驾汇（2）
+- [试驾吉利星越L PLUS：燃油车的新未来？](https://youtu.be/GID8W8kJelk) · 2026-11-19T08:29
+- [试驾全新零跑Lafa5 Ultra：越级配置最具性价比](https://youtu.be/raf57oUl0AU) · 2026-11-18T13:47
 
-## 才子情感（2）
-- [出軌的男人大多來自內心的貧窮](https://youtu.be/oiW1B2SXpoU) · 2026-11-18T08:00
-- [男人從背叛婚姻那刻起，結局早已註定](https://youtu.be/ybjxJY1ryIM) · 2026-11-17T18:00
-
-## 十萬個品牌故事 100k Brand Stories（2）
-- [【十萬品牌故事】10年前打敗了華為、蘋果的酷派，現在怎麼就轉行銷老年機了？](https://youtu.be/TRjSELJw9lQ) · 2026-11-18T08:00
-- [英偉達最難的一次交棒](https://youtu.be/nTSK4qVceA4) · 2026-11-17T15:17
-
-## 多伦多方脸（2）
-- [无权无势的温家宝为何能身居要职](https://youtu.be/2H7FdJtpW_I) · 2026-11-18T07:39
-- [张国焘企图投奔蒋介石却遭共产党绑架](https://youtu.be/n-u-TOpvkWo) · 2026-11-18T07:37
-
-## 七七叭叭TALK（2）
-- [X放開，中國網絡牆沒了？！幾十萬國產車VS五菱宏光，誰輸誰贏？！這段看完還不笑的，只能確診玉玉症了！七七叭叭TALK第1034期20261118](https://youtu.be/uXDWL9_zaqM) · 2026-11-18T07:25
-- [深圳大事，根本藏不住！天橋全是警察，四通橋勇士是他們心中的一根刺，比我們想象的都還要更怕！！七七叭叭TALK『提神醒腦833』20261118](https://youtu.be/O75L4Hdh_0Y) · 2026-11-18T05:15
-
-## Metics Media（2）
-- [How to Start an LLC in California in 15 Minutes (2026) - Step-by-Step](https://youtu.be/kfMMcQdXaGo) · 2026-11-18T07:04
-- [Texas LLC - How to Start an LLC in Texas in 10 Minutes (2026)](https://youtu.be/etfFKhRq8K8) · 2026-11-17T18:57
-
-## BBC News 中文（2）
-- [「特習會」可能影響黃仁勳重返輝達嗎？－ BBC News 中文 #美國 #中國 #黃仁勳](https://youtu.be/Dyz6FA0koyE) · 2026-11-18T06:49
-- [BBC專訪《GTA》創始人：暌違13年再矚目登場 為何成為全球文化現象？－ BBC News 中文](https://youtu.be/4b-DhIfnpc8) · 2026-11-17T13:00
-
-## Altcoin Daily（2）
-- [Gary Cardone: "This Is NOT Capitulation Yet"](https://youtu.be/7qjFt0k9QHE) · 2026-11-18T06:15
-- [Michael Saylor: My Massive Prediction for Anthropic IPO & Bitcoin](https://youtu.be/I2OatwLLsbU) · 2026-11-18T01:53
-
-## 老范讲故事（2）
-- [老范读评11月18日](https://youtu.be/w3xBuJm26HQ) · 2026-11-18T06:10
-- [特斯拉邀请个人订购Cybercab，买来能代步、能接单吗？ #Cybercab](https://youtu.be/kIgM-y8nkts) · 2026-11-18T00:30
-
-## 硬核刘大（2）
-- [花旗警告：中国出口明年将从两位数暴跌至个位数，经济恐逼近衰退边缘，政策恐迎来类似924重大转向！付鹏：政府喊破嗓子也没用，想让老百姓消费，必须拿出真金白银！](https://youtu.be/NZ1QTPpKOeA) · 2026-11-18T04:50
-- [未来20年，中国人的财富将重新洗牌，房子不再是财富密码，真正值得投资的是这几样东西！](https://youtu.be/sxVuzYWBlWM) · 2026-11-17T17:39
-
-## Marie玛丽-斯坦福豪宅- MK Group（2）
-- [买豪宅，是投资还是消费？](https://youtu.be/FA_-J9paUFc) · 2026-11-18T04:13
-- [湾区卖房,除了价格,还有哪些利益必须争取？](https://youtu.be/DZeYgehvfc4) · 2026-11-18T02:30
-
-## 外贸团长（2）
-- [Packaged Food Display: Packaging and presentation tell a visual story](https://youtu.be/6yHbjaI0odk) · 2026-11-18T04:00
-- [PADBOT: Help viewers picture the space](https://youtu.be/PMFCWN89wMQ) · 2026-11-17T12:00
-
-## 攝徒日記Fun TV（2）
-- [中國大媽崩潰，大鬧馬來西亞借錢碰瓷，結果全部騙到中國人同胞，小粉紅痛哭 #shorts](https://youtu.be/3EMRlj9Hizs) · 2026-11-18T03:24
-- [我真的崩潰了！中國買兇、跟監我家人，我後悔嗎？](https://youtu.be/KnC2R2TE-wA) · 2026-11-17T13:47
-
-## 清一色-幽默油条喜剧（2）
-- [路亚姐妹🎣 我们218寝室 dancing queen 👸🏻👸🏻  #赵奕欢 #路亚 #钓鱼 #有你的恋歌3 #清一色脱口秀](https://youtu.be/iGEaLuNiCPY) · 2026-11-18T03:23
-- [我真不是人啊，开颅手术还让他做俯卧撑 #脱口秀 #幽默油条脱口秀 #清一色脱口秀 #清一色名场面 #清一色演出](https://youtu.be/p7xoTLfnKtA) · 2026-11-18T03:23
-
-## 臺大演講網（2）
-- [“Thinking in Many Tongues”: Language, Materiality and Thought in Literary Studies｜臺大文學院跨領域論壇](https://youtu.be/yd4UE1-8mgQ) · 2026-11-18T02:35
-- [Imaging and Multiomics Reveal Early Network and Metabolic Dysfunction in Preclinical ...｜基因體醫學月會](https://youtu.be/n3YoVe1p7EA) · 2026-11-18T02:31
-
-## 軍事情報局 · 周子定（2）
-- [B21首次投彈明年就要服役！（1） #軍事情報局 #周子定](https://youtu.be/DVbQB9Qb7RI) · 2026-11-18T02:00
-- [B-21首次投彈！2027年形成戰力！B-21用兩年時間幹了B-2五年的事｜#軍事情報局 #周子定](https://youtu.be/FJYwn5MHW2E) · 2026-11-17T12:00
+## Crypto Banter（2）
+- [CRTICIAL: Is The Worlds BIGGEST IPO Ever Good For Markets? [My Trade Plan]](https://youtu.be/cPdMTsTDctI) · 2026-11-19T07:53
+- [Every Market Is Crashing… Here's Why It Could Get Worse Fast!](https://youtu.be/hieH3S0U8-E) · 2026-11-18T14:14
 
 ## 课代表立正（2）
-- [做一件事，最正当的理由可以是：我想做](https://youtu.be/pv-mzH6FVr8) · 2026-11-18T01:00
-- [如何在任何情况下，都能想出最佳策略？](https://youtu.be/mBTfhUD9HVI) · 2026-11-17T16:07
+- [Anthropic是下一张AI船票，还是历史最大资本泡沫？](https://youtu.be/tOCXPnwkT4s) · 2026-11-19T07:29
+- [401(k)不在活期里，就不算存下的钱吗？](https://youtu.be/fwk4SL7aAVg) · 2026-11-19T01:00
 
-## TED（2）
-- [The harder you try to control everything, the more likely you are to get in your own way #TEDTalks](https://youtu.be/80Cp7g4l1FI) · 2026-11-17T23:30
-- [How to Rewire Your Brain — and Find Your Flow | Heather Berlin | TED](https://youtu.be/B2SIsncgFi0) · 2026-11-17T17:00
+## 七七叭叭TALK（2）
+- [上海早就不行了，又是預言！？中國人的工作問題居然還有大坑！？七七叭叭TALK第1035期20261119](https://youtu.be/cpyOu4AltCs) · 2026-11-19T07:25
+- [江蘇體制內，地下室畫面洩漏！？有人打過國產車的客服電話嗎，你覺得想不到他們會說啥，特斯拉也不想贏啊！！七七叭叭TALK『提神醒腦834』20261119](https://youtu.be/gomsg9MgC84) · 2026-11-19T05:15
 
-## Tourister（2）
-- [Tokyo, Japan 🇯🇵 | Shibuya at Night | 4K HDR Walking Tour 2026](https://youtu.be/qf9fauBZno0) · 2026-11-17T16:25
-- [London, England 🏴󠁧󠁢󠁥󠁮󠁧󠁿- Christmas Capital - 4K Walking Tour](https://youtu.be/4LFThIPCrRg) · 2026-11-17T12:23
+## Metics Media（2）
+- [Virginia LLC - How to Start an LLC in Virginia in 10 Minutes (2026)](https://youtu.be/xn03SL_jxs0) · 2026-11-19T07:00
+- [Pennsylvania LLC - How to Start an LLC in Pennsylvania in 2026 (Step-by-Step)](https://youtu.be/FyhjugZu6UI) · 2026-11-18T19:00
+
+## 硬核刘大（2）
+- [中年人失业后会面临怎样的境遇？国内博主揭露灵活就业现状，真实情况触目惊心，信息量极大！ ｜失业｜灵活就业](https://youtu.be/tMUr2w_CxSA) · 2026-11-19T06:14
+- [为什么很多中国老板不遵守劳动法？中国工厂在芬兰玩国内那一套，扣食宿、禁投诉、工资要退，直接被判定人口贩运！农民工帮人讨薪一分钱没拿，却被判刑4年，法院自己承认欠薪是真的！ ｜劳工待遇｜景树仁｜周禄宝](https://youtu.be/2S75HR7rRws) · 2026-11-18T18:44
+
+## 攝徒日記Fun TV（2）
+- [八炯入獄！中國派舔共台灣人跟監一年，恐嚇家人，遭起訴三年 #shorts](https://youtu.be/lWcSLmuSk5s) · 2026-11-19T03:53
+- [中國翻牆結束了！深圳人崩潰，全城當免費演員，當外國領導人面，跪地擦手扶梯，中共爛尾面子工程全被拍下](https://youtu.be/lOtNc6cA__w) · 2026-11-18T13:17
+
+## 軍事情報局 · 周子定（2）
+- [徹底炸毀克里米亞大橋（2）｜ #軍事情報局 #周子定](https://youtu.be/kEPvnzHA9g4) · 2026-11-19T03:00
+- [徹底炸毀克里米亞大橋（1）｜ #軍事情報局 #周子定](https://youtu.be/5sfSmyBxctk) · 2026-11-19T02:00
+
+## Jade Nomad Life | Jade的游牧生活（2）
+- [A Suitcase That Opens Differently! | 4MYTU Tank Trunk Review ⭐](https://youtu.be/_aFYRVlCW_A) · 2026-11-19T02:07
+- [Cozy Up for Fall & Winter 🍂 | 蕉下秋冬新品穿搭分享](https://youtu.be/5Q_pFlX_dtA) · 2026-11-19T02:06
+
+## 王志安 （2）
+- [罗大佑只敢骂民进党不敢骂中共吗](https://youtu.be/Dc-oQcVmDm4) · 2026-11-19T02:02
+- [罗大佑骂蔡英文没孩子错在哪](https://youtu.be/fyN_v12Xz7M) · 2026-11-19T00:49
 
 ## Ross Cameron - Warrior Trading（2）
-- [Preparing for the Anthropic IPO](https://youtu.be/amFU5yTbRZY) · 2026-11-17T16:00
-- [75% Squeeze in 10-minutes](https://youtu.be/WuqxgQzJU4w) · 2026-11-17T15:58
+- [The Problem With Chat GPT](https://youtu.be/Y0fPPifuiC8) · 2026-11-19T02:00
+- [This is what we're training for...](https://youtu.be/qIS_sUGMtZM) · 2026-11-18T17:28
 
-## 百靈果News（2）
-- [現在選舉民調跟以前大不同？ ft.台大 張佑宗 #政治 #選舉  #民主](https://youtu.be/BJOs2vswAwE) · 2026-11-17T15:04
-- [The KK Show 387 - 為什麼台灣牛奶比日本貴？鮮乳坊創辦人 阿嘉 (CC AI字幕)](https://youtu.be/XmUw6yHjyeo) · 2026-11-17T13:00
+## 纪实Talk（2）
+- [香港人和大陸人在國外旅遊，給人感覺完全不同？！海外導遊說出大實話：差距竟然這麼大，一眼就能分出來！#圆桌派 #许子东 #马家辉 #梁文道  #观复嘟嘟 #马未都 #纪实talk](https://youtu.be/mh2euL6YrVU) · 2026-11-19T01:00
+- [冯时 认为其实文化实际是在慢慢衰弱的，如果去溯中华文明的源在先秦所有的东西就已经创造完成了，后世只是在对原来成果的修修补补#窦文涛#周轶君#马未都#许子东#尹烨#圆桌派#圆桌派第八季 #shorts](https://youtu.be/H0oOLRuYRSo) · 2026-11-18T13:00
 
-## 視角晶晶（2）
-- [心定是什么样？九个阶段一次讲透](https://youtu.be/wvkvTbZdnJ4) · 2026-11-17T14:55
-- [住了一宿，就开悟了？永嘉证道歌](https://youtu.be/uImD0ybDnps) · 2026-11-17T11:37
+## Altcoin Daily（2）
+- [The UNTHINKABLE is About to Happen to Crypto](https://youtu.be/jk19_P5fWmo) · 2026-11-18T23:54
+- [Bitcoin to $1 MILLION by 2036](https://youtu.be/Ze2j39_pKZI) · 2026-11-18T19:43
 
-## 黑男邱比特（2）
-- [黑男邱比特 : 皮膚雪白美少女vs190cm甜點王子｜Fair-Skinned Pretty Girl vs. 190cm Dessert Prince｜거리 매칭｜ストリートマッチング](https://youtu.be/VIpkO4eJeqM) · 2026-11-17T14:30
-- [混亂配對3V3 ＠@eva__0806  @eva0806_3.0](https://youtu.be/Nqf6jyI1Ywc) · 2026-11-17T12:00
+## 梅大师飞越美中（2）
+- [上海和平饭店龙凤厅：在1929年的南京路外滩老建筑吃本帮菜](https://youtu.be/NK9CLlzUnvA) · 2026-11-18T23:29
+- [旅居广州：300出头可以在广州市区住什么酒店？](https://youtu.be/jOqB_OQNIZk) · 2026-11-18T15:45
 
-## Godspeed Sleep-Relaxing-Healing music（2）
-- [睡眠用bgm【疲労回復・自律神経改善】熟睡できる音楽 疲労回復 短時間、短い時間でも本当に疲れが取れる 弊社独自の特殊音源で深く眠れる #562](https://youtu.be/HL3_eNE5yug) · 2026-11-17T13:00
-- [🔴本当によく眠れる【睡眠音楽・即効性あり】心身の緊張が緩和、ホルモンバランスが整う、自律神経が整う、ストレス解消、すごい効果！深い眠り【睡眠用bgm・リラックス音楽・眠れる音楽・癒し音楽】LIVE](https://youtu.be/4xl80AOIq3s) · 2026-11-17T11:45
+## 上海宁在上海（2）
+- [上帝没看清视角｜谈上海实际现状｜就业失业降薪加薪｜我为什么开心不起来｜程序猿失业大潮来了｜](https://youtu.be/1oqjvlJaT2w) · 2026-11-18T21:30
+- [上海迪斯尼乐园十周年｜这才是发自内心的快乐｜高画质｜免费看烟花秀｜迪斯尼小镇｜排队｜物价｜餐饮｜商店｜](https://youtu.be/4-XXbeQitaw) · 2026-11-18T19:00
 
-## huangyihe（2）
-- [知识库：如何做分类与索引](https://youtu.be/TYY_-69-29s) · 2026-11-17T12:30
-- [AI专业层：让AI超出通用水平](https://youtu.be/GxhFNRU8bo8) · 2026-11-17T12:00
+## Amili Huang（2）
+- [OMG, studio lighting is actually so much fun, I’m totally obsessed!](https://youtu.be/FgYzQvq8ffU) · 2026-11-18T17:41
+- [Good morning!](https://youtu.be/d5EJt_Zmw3Y) · 2026-11-18T13:11
 
-## trader叫兽（1）
-- [BTC暴跌后横盘：下跌中继还是反弹？这两个位置别看错 #比特币 #BTC #合约交易 #比特币 #合约交易](https://youtu.be/BhEkDdGoKRE) · 2026-11-18T08:13
+## Coin Bureau（2）
+- [Jensen Huang Wants Back In. Why Is NVIDIA Saying No?](https://youtu.be/L_AUxnMLvrQ) · 2026-11-18T16:00
+- [Did Anthropic Cause Bitcoin's CRASH?](https://youtu.be/zlfcCJ1GIzU) · 2026-11-18T12:26
 
-## Crypto Banter（1）
-- [ATTENTION ALL: BUY Bitcoin Right NOW OR WAIT For Further Capitulation?  [The Plan]](https://youtu.be/uVrHQHq-B5g) · 2026-11-18T08:02
+## Mark的泰国旅居（2）
+- [mark不定期直播](https://youtu.be/XkLibMsyqf8) · 2026-11-18T15:51
+- [在泰国买卖二手车，出手的时候要亏多少](https://youtu.be/LM5640vTK0o) · 2026-11-18T13:36
+
+## Tourister（2）
+- [Madrid at Christmas 🇪🇸 — A Golden Fairytale of Holiday Lights & Grand Piazzas | 4K HDR 60fps](https://youtu.be/aO3JE4us3-E) · 2026-11-18T13:23
+- [Bratislava, Slovakia - Winter ❄️ 4K HDR Walking Tour](https://youtu.be/9SQLggrkQoc) · 2026-11-18T13:00
 
 ## 饭团🍙元宇宙比特币（1）
-- [币安和欧易哪个好？币安安全吗、欧易安全吗？2026年我从储备金、币安被盗63亿美元、美国认罪罚款、手续费、币种和APP逐项对比币安欧易区别，新手老手怎么选交易所，附币安注册和欧易注册教程](https://youtu.be/NV3eyRNbNhc) · 2026-11-18T08:00
+- [币安钱包怎么转到交易所、怎么提现：币安Web3钱包的USDT转回币安交易平台或转到欧易钱包，TRON网络费直接扣USDT不用买TRX，新地址要先激活，USDT转账手续费和gas费一次讲清](https://youtu.be/cXDoSzXTxzE) · 2026-11-19T08:00
 
-## lyon的离岸账户（1）
-- [新加坡渣打银行，为什么我最推荐？](https://youtu.be/9yg6BDEf090) · 2026-11-18T07:46
+## 十萬個品牌故事 100k Brand Stories（1）
+- [【十萬品牌故事】從“十元店”到收購永輝，名創優品是什麼來歷？](https://youtu.be/OdeaynjnVms) · 2026-11-19T08:00
 
-## 雷堤娜 Tyna（1）
-- [💪🏻](https://youtu.be/dr8KmamIcKE) · 2026-11-18T07:08
-
-## 宇哥侃故事（1）
-- [叹为观止的神猫大赏2【宇哥】](https://youtu.be/K0lDR4qmw1Y) · 2026-11-18T06:18
-
-## 五岳散人（1）
-- [黄仁勋最新声明的五个潜台词：私德、爱国、人心、甩锅、橄榄枝，想回来的渴望溢于言表](https://youtu.be/FRpby0Lr7Yc) · 2026-11-18T06:05
-
-## 林sasa在上海（1）
-- [邪门小课堂｜实现幻想：逼里塞大葱... 一根大葱当振动棒？这期厨房play邪门到我了](https://youtu.be/OBHajhBDAnw) · 2026-11-18T06:00
-
-## Last Days（1）
-- [Come pray with me](https://youtu.be/2_3zOVL0YDM) · 2026-11-18T05:40
-
-## 隐枫视野（1）
-- [十八万人签名，本人表态：黄仁勋能否王者归来？| 黄仁勋绯闻系列第八集｜第573期](https://youtu.be/iPLuNvrRLc0) · 2026-11-18T05:14
-
-## AD Cafe（1）
-- [大阪咖啡廳推薦｜世界冠軍的店＋必喝 2 間，東京再加 2 間｜2026 日本咖啡跑店 EP1](https://youtu.be/2mcxQhKMzB4) · 2026-11-18T05:09
-
-## 被锤的yy（1）
-- [超好用❗ AppleWatch 这 4 个手势一定要会用！](https://youtu.be/__-hPdr97HU) · 2026-11-18T04:56
-
-## Weley Ma（1）
-- [惠州房產 萬科、恆大、碧桂園全來了！雙月灣海景房跌至1800一平米，為什麼我勸你千萬別碰？](https://youtu.be/tn2U6tZNHsU) · 2026-11-18T04:48
-
-## 美上美皮膚科-莊盈彥醫師（1）
-- [UP Alpha跟UP雷射，有差嗎？#UPAlpha #UP雷射 #UltraPulse #雷射 #醫師交流 #莊盈彥醫師 #美上美皮膚科](https://youtu.be/R_GqkXe_xks) · 2026-11-18T04:30
-
-## AI学长小林（1）
-- [OpenAI 发布 GPT-6.2 Astra：降价 20%，却被骂惨了！](https://youtu.be/sAlFobpQ2S4) · 2026-11-18T04:14
-
-## VEXILLA潮時務所（1）
-- [【负卷地狱】中国社会内卷的新高度 | 14亿人的缩量大逃杀，开始了！](https://youtu.be/Xyo2fstcpiU) · 2026-11-18T04:00
-
-## 蛊惑帮（1）
-- [【蛊惑幫】豪擲10萬的教訓！衝入辦公室就要揍DB？丈夫眼高手低妻子求助](https://youtu.be/1ygau5rmJ1w) · 2026-11-18T04:00
-
-## 林嘉凌 薔薔Maze（1）
-- [「這床病人今晚會走」 醫院不為人知的超準驚悚離奇預言？@superglue0517   #薔栗膠podcast](https://youtu.be/Pi7D2eHVE7w) · 2026-11-18T04:00
-
-## 許藍方博士 Dr. Gracie（1）
-- [Dr. Gracie｜越濃越健康！？精液的狀態反映身體健康度？Thicker Semen = Better Health?!](https://youtu.be/Vk7m1y973nk) · 2026-11-18T04:00
-
-## DEAR HELEN (海轮海轮)（1）
-- [其他人生的记忆堆积在我的心中，就像已经买来、却仍未阅读的一堆书](https://youtu.be/-626bn7lDlw) · 2026-11-18T03:30
-
-## 跟考拉喝杯酒（1）
-- [别等边控再后悔：敏感人士跑路指南，结婚/预备身份/快速拿护照](https://youtu.be/Cm50SzyVSjw) · 2026-11-18T03:30
-
-## Alan Chen（1）
-- [星舰连载 第17集｜2015 年 12 月 21 日：猎鹰 9 第一次回家](https://youtu.be/AswXThwUgvY) · 2026-11-18T03:00
-
-## 沉醉的小五狼（1）
-- [如何把自己的嫉妒心化为能量！！！#独立思考 #七宗罪 #嫉妒 #自我提升 #情感](https://youtu.be/NMkqGM9TrL0) · 2026-11-18T02:35
-
-## 西康札记Xikang（1）
-- [峰哥马驹桥事件重演｜经济持续下行 底层百姓的生存状态让人触目惊心|官媒潇湘晨报记者勇敢报道郑州最大零工市场 视频瞬间被下架|网友喊话人社部：没交社保的人不用找 都在零工市场里](https://youtu.be/wPZFZvbtamg) · 2026-11-18T02:00
-
-## 小叔TV（1）
-- [北漂朋友买房断供后惹祸上身:当年维权后果严重,他做地铁安检员不为人知的艰辛(小叔TV EP513)](https://youtu.be/QymAVuT_Z9k) · 2026-11-18T02:00
-
-## 中美对标（1）
-- [妖妖酱：邓文迪情史，为何被美情报部门盯上？](https://youtu.be/NgfrlHEGsNI) · 2026-11-18T02:00
-
-## M2档案（1）
-- [加拿大總是佔美國便宜，是真的嗎？今天來算算這筆帳](https://youtu.be/-HvQP6vAOwk) · 2026-11-18T01:30
-
-## FearNation 世界苦茶（1）
-- [E273 不靠听床：用人事网络看懂中共大清洗 | 组织部广场 | 精英政治 | 社会学分析 | 官场网络 | 落马](https://youtu.be/fezlzpTht-E) · 2026-11-18T01:28
-
-## 未解之謎 扶搖（1）
-- [吃下它，竟打開了「平行空間」的縫隙？！數百個小人湧入家中，中菲兩國目擊者看到同一個世界！科學家化驗後冷汗直流……| #未解之謎 扶搖](https://youtu.be/phYj3SqFJSE) · 2026-11-18T01:00
-
-## Jack的世界（1）
-- [女儿哭着让我去自首！走线来美的湖南大叔，在洛杉矶深夜卖臭豆腐，背后是一个家庭的悲欢｜“爸爸，你不爱国！”女儿的一句话，让这个远在美国的父亲无比无奈｜在洛杉矶卖臭豆腐，一个月能赚多少钱？](https://youtu.be/raZSso_BQ4E) · 2026-11-18T00:51
-
-## 一个狠人（1）
-- [活成唐朝、死於民國！四本末代帳本推演中共最後劇本、同一種病為何唐拖150年民國才8個月？轉移支付是江淮輸血管、遠洋捕撈是電子釐金、壓利率是慢性金圓券陰乾中產！一打台灣民國鐘就走字！](https://youtu.be/nDhE-LF-1Vg) · 2026-11-18T00:38
-
-## 01Coder（1）
-- [外网差评如潮的 GPT-6.2 Astra 与 Sol 发布](https://youtu.be/wZ0o8Du8bDE) · 2026-11-18T00:31
-
-## 一席YiXi（1）
-- [【一席教育】四肢发达会让头脑更发达？](https://youtu.be/0vVs40tGKPw) · 2026-11-18T00:30
-
-## 不明白播客（1）
-- [李厚辰：从网络评论看中国人的阶层想象](https://youtu.be/u_4Wm5V5htY) · 2026-11-18T00:23
-
-## NaNa说美股（1）
-- [老乡快回来！NaNa说美股(2026.11.17)](https://youtu.be/jZCHAiTSYoM) · 2026-11-18T00:13
-
-## Lemon English（1）
-- [「我剛好路過」「順便幫我拿一下」「不用特地跑一趟」英文怎麼說？200句美式生活口語｜5秒英文反應訓練](https://youtu.be/o99CFb0gfl4) · 2026-11-17T23:45
-
-## 吉祥八卦兔（1）
-- [热衷于举报同学的大学生，很可能成长于中国式寄宿高中](https://youtu.be/unrp1cCuv7A) · 2026-11-17T23:39
-
-## 梅大师飞越美中（1）
-- [老刘来了：今年的双十一彻底没戏！梅大师要做Ai漫剧割韭菜了？](https://youtu.be/1jy6tVdMBZs) · 2026-11-17T23:30
-
-## Benjamin Cowen（1）
-- [Stock Market: The Breakdown Continues](https://youtu.be/G71pimAYMm4) · 2026-11-17T23:29
-
-## 德国知事GermanCheese（1）
-- [德国政治博主戴着滤镜去上海 结果翻车&掉粉！| "我去了中国，幻想破灭了!" | "德国10-15年内能赶上中国" "上海不过是西方的复制品"](https://youtu.be/p9otmRk9Sl4) · 2026-11-17T23:00
-
-## 老厉害（1）
-- [「CF40」20261108：中国居民资产负债表将于2028年初完成修复](https://youtu.be/dlBdnGh-IBg) · 2026-11-17T22:00
-
-## 孙海英的频道（1）
-- [上帝祝福！ #孙海英](https://youtu.be/ye4k5V-JjbA) · 2026-11-17T21:07
-
-## 姜胡说（1）
-- [人生选择，记住三条 人生怎么做重要选择？记住三条，可以一起用，不是三选一。第一条，跟对人。如果你是穷人家的孩子，家里没人做成过事，做重要选择时别只听长辈的——不是说他们不好，是他们的认知可...](https://youtu.be/FTu_r2baoJc) · 2026-11-17T20:33
-
-## 數碼旭（1）
-- [新款Apple TV詳細實測，4年後它改變了什麼](https://youtu.be/V08XM4t_sPE) · 2026-11-17T20:00
-
-## LastWeekTonight（1）
-- [Alligator Alcatraz #lastweektonight](https://youtu.be/qBlp7BuKkJM) · 2026-11-17T19:07
-
-## TEKNIQ（1）
-- [Climbing China’s Scariest Mountain Road](https://youtu.be/zLm_7fZYSr8) · 2026-11-17T19:04
-
-## Tai-Lin (Irene) Lee（1）
-- [Why one company runs half of American medicine](https://youtu.be/eWl1SPhDKWw) · 2026-11-17T17:04
-
-## 硅谷101（1）
-- [“后黄仁勋时代”：英伟达的护城河、资本棋局与AI产业变数](https://youtu.be/xJUWVxZfNVI) · 2026-11-17T16:22
-
-## Mark的泰国旅居（1）
-- [mark不定期直播](https://youtu.be/DrIZKKmgJ-g) · 2026-11-17T16:01
-
-## 誤人子弟（1）
-- [【新問界M8上市，上演最尷尬發布會😂】速成車鼻祖公開抵制速成車，華為尷尬了😅｜新問界M8不是速成車了，但價格太離譜，華為孝子集體罵街](https://youtu.be/cYxPYBXwDoE) · 2026-11-17T15:14
-
-## Max Amini（1）
-- [Hot Balkan Mix | Max Amini | Stand-up Comedy](https://youtu.be/Zn--SBgLDfo) · 2026-11-17T15:03
-
-## Positive Energy Meditation Music（1）
-- [528Hz + 1111Hz | The Deepest Healing Sleep: Melatonin Release & Emotional Detox](https://youtu.be/J5jZ3pOrqhI) · 2026-11-17T15:00
-
-## 小翠時政財經（1）
-- [🔴【每日要聞】美股40年來最悲觀，黃仁勳風暴拖累整個半導體！美國出台最嚴芯片禁令，中國大模型遇最難時刻！｜小翠時政財經 202601117](https://youtu.be/5zfSLIfgcgI) · 2026-11-17T14:28
-
-## 徽湖说房（1）
-- [一分钱掰2半花，上海进入纯过日子时代；为保命与时代黑利彻底切割，年轻人做空前绝后一代；一盘散沙全员焦虑，60%家庭不婚不育。](https://youtu.be/rIE5MoHN_DY) · 2026-11-17T14:01
-
-## Coin Bureau（1）
-- [How Wall Street Is Choosing Crypto's WINNERS](https://youtu.be/9k47sQ0CT18) · 2026-11-17T14:00
-
-## 老石谈芯（1）
-- [我给机械臂装了个本地大模型：几行代码就能干的活，为什么要用AI？](https://youtu.be/sBn6T-EVlmY) · 2026-11-17T13:34
-
-## Cofit x 宋晏仁醫師 - 初日醫學（1）
-- [一週五練，體脂一定會變低嗎？Cofit Lab來解惑！ #Cofit #CofitLab #體脂率 #減脂 #健康](https://youtu.be/DLksI3mCXaI) · 2026-11-17T13:30
-
-## 與人說（1）
-- [有人移民很順利！有人卻能徹底崩潰！跟錢沒關係！關鍵差距只有一個！](https://youtu.be/dtQoVzVAkYI) · 2026-11-17T13:30
-
-## 牛叔雜貨店 SUPER NEWGO（1）
-- [北屯區的朋友請支持，心中還有理想的人，才會繼續堅持參選的段兄 SUPER NEWGO](https://youtu.be/FwI8-izoQ9U) · 2026-11-17T13:28
-
-## This is Ken（1）
-- [缺點就是會吃太飽 😂 ，東京日本橋的 谷や #東京美食 #烏龍麵](https://youtu.be/PuVvWtCrBa8) · 2026-11-17T13:25
-
-## 找蔬食Traveggo（1）
-- [東京新發現蔬食🇯🇵 極致刀工擔擔麵、18種香料咖喱、無麩純素吉拿棒](https://youtu.be/dy_c-BeZnXE) · 2026-11-17T13:19
-
-## barry看世界（1）
-- [据说天选之人家里100℃的水比25℃的水先结冰！](https://youtu.be/q8yH14oqQ0k) · 2026-11-17T13:15
-
-## 大家车言论【官方频道 欢迎订阅】（1）
-- [迈凯伦调国产车，有点东西？【大家车言论】](https://youtu.be/HaIarby2MjA) · 2026-11-17T13:12
-
-## 氪學家（1）
-- [黄仁勋：从刷厕所到5.8万亿帝国 33年传奇 一夜终结](https://youtu.be/aghLoMenYnM) · 2026-11-17T13:08
-
-## Steve Kaufmann - lingosteve（1）
-- [20 Languages: My Journey Learning Russian & More!](https://youtu.be/8_PQNp7jrMs) · 2026-11-17T13:02
-
-## 阿軻在路上AKe on the road（1）
-- [在坦桑尼亞被酒店趕出來，吃頓飯又被臨時加價！為了尋找金礦真是一路囧途](https://youtu.be/Q5Mjy9iTazA) · 2026-11-17T13:01
-
-## 泛科學院（1）
-- [Gemini 大更新！Task 模式、Skill 技能卡、排程功能一次看懂｜泛科學院](https://youtu.be/wQzMEj5LS5Y) · 2026-11-17T13:00
-
-## 志祺七七（1）
-- [韓企業大佬收養員工當兒子？商業接班人計劃啟動！😲｜志祺七七 Shorts #shasha](https://youtu.be/MgKtFqIC3Pk) · 2026-11-17T13:00
-
-## Empti Music |Healing Music for Sleep & Mindfulness（1）
-- [Unlock Hidden Intuition with 852Hz 👁️](https://youtu.be/p-vYsPZU3Uc) · 2026-11-17T13:00
-
-## 尉遲大官人（1）
-- [消费降级无限逼近底线：双十一遇冷，年轻人捡菜叶、香烟论根卖，离捡烟屁股还有多远？](https://youtu.be/9wPFd_H4Jb0) · 2026-11-17T12:46
-
-## 解读君（1）
-- [【2026-11-16最新】顶级投行摩根士丹利最新判断：预计要2028年才会降息](https://youtu.be/H9rPwx6YL0E) · 2026-11-17T12:30
-
-## 老张亡命天涯（1）
-- [在菲律宾得了一种治不好得病 #国外生活 #菲律宾 #vlog十亿流量扶持计划 #旅行玩家](https://youtu.be/Rnet91BYLcU) · 2026-11-17T12:26
-
-## 悦耳音乐酱（1）
-- [最近大火的7首“破亿神曲”，仅 《慌啥子嘛》3天8.6亿播放，太上头了！](https://youtu.be/tHe9PtOJcGI) · 2026-11-17T12:25
-
-## 零度解说（1）
-- [DeepSeek-V4-Pro 最新越狱！解除限制、无审查，拒答率从 99% 暴降至 5%，4B/9B 模型本地轻松运行！实测效果如何？| 零度解说](https://youtu.be/gnGyaxZkbik) · 2026-11-17T12:23
-
-## 超直白Chaozhibai（1）
-- [後面每天都還可以繼續捏😻直接被我捏爆三顆⋯](https://youtu.be/bGGaUfKsF-I) · 2026-11-17T12:18
-
-## 韋一的鼻子（1）
-- [Fracas 的晚香玉，為什麼像一束有重量的白花？](https://youtu.be/G5VfEJDWc00) · 2026-11-17T12:04
-
-## 华夏奇闻异事（1）
-- [奇葩中國！寵物醫院暗藏『美女服務』！“外賣媛”送貨上門！美女竟成“二手物品”被上架網購！｜Reaction Video｜爱情](https://youtu.be/w6SliMLRuss) · 2026-11-17T12:02
-
-## 科技分享（1）
-- [【2026最新】自建节点被墙怎么办？VPS套CDN恢复被墙节点！防止自建vps被墙被封套cloudflare 免费cdn 使用教程，ip被墙怎么办，被墙ip套cf，cdn是什么怎么使用](https://youtu.be/nPyGssjcBB4) · 2026-11-17T12:01
-
-## 脑洞乌托邦（1）
-- [這個國家，差點被仙人掌整垮了...](https://youtu.be/S1gmKTlemw0) · 2026-11-17T12:00
-
-## 順手牽洋 ShaunTheGlomad（1）
-- [一条通往长期身份的路 #墨西哥 #居留权 #有什么用](https://youtu.be/aWX0d81xE0Q) · 2026-11-17T12:00
-
-## 一条Yit（1）
-- [他把園子當情人，10年，錢全花在了這座山水上 He Spent 10 Years Building His Dream Garden — And Poured Everything Into It](https://youtu.be/lI2frHYGI_U) · 2026-11-17T12:00
-
-## 圆Tarot（1）
-- [圆急讯 整合能量 无时限](https://youtu.be/XdY-gNYNdEA) · 2026-11-17T12:00
-
-## 拿督郑博见DAC（1）
-- [2026有多难熬，2027“它”就有多风光！🔥](https://youtu.be/X41oh7SS6CQ) · 2026-11-17T12:00
-
-## Celine's Way 不只是旅行（1）
-- [北極熊比人還多！花20萬飛到加拿大小鎮，小白鯨、北極熊、極光一次解鎖｜邱吉爾 Vlog](https://youtu.be/82XH0Wkhcnw) · 2026-11-17T12:00
-
-## Kelly Tsai（1）
-- [會50種語言的人都是怎麼學外語的？原來以前的語言學習方法都錯了！現在AI翻譯這麼強，人還需要自己學會語言嗎？｜What's Next? EP20 ft. Terry 謝智翔｜Kelly Tsai](https://youtu.be/d-OxVReFIL4) · 2026-11-17T12:00
-
-## Lester路肖南（1）
-- [千万不要碰这两种交易利润！有些钱赚得越多，亏得越快｜交易利润代价比例](https://youtu.be/sHAiFRwTWS4) · 2026-11-17T12:00
-
-## IC实验室（1）
-- [从《超级女声》到《后会友期》，芒果台30年资本发家史 - IC实验室出品](https://youtu.be/uE5v0mLc7tI) · 2026-11-17T12:00
+## 怠速拍档【官方频道 欢迎订阅】（1）
+- [40岁老宅男的枯燥生活](https://youtu.be/OVA0ZiNnNaE) · 2026-11-19T07:29
 
 ## 大狸子切切裡 Cherry OFFICIAL CHANNEL（1）
-- [GTA6上線前一天的我：#gta #gta6 #ps5 #遊戲](https://youtu.be/gQXhZuinlzg) · 2026-11-17T11:47
+- [PC玩GTA6很難嗎？配置單自取！#gta6 #gta #遊戲](https://youtu.be/GIEjSK_K-cU) · 2026-11-19T07:10
 
-## 狗狗币大师兄（1）
-- [黃仁勳被炒掉的根本原因，明年1月份後，再考慮購買｜「速報」](https://youtu.be/XUB60ScIZ28) · 2026-11-17T11:43
+## 硅谷101（1）
+- [Anthropic崛起史：最强AI背后的矛与盾，布道者与伪君子](https://youtu.be/sYdN4b14rHU) · 2026-11-19T06:38
+
+## 宇哥侃故事（1）
+- [这些吃货的搓饭速度也太快了吧！【宇哥】](https://youtu.be/kBrEsfMuQME) · 2026-11-19T06:23
+
+## Last Days（1）
+- [Where are we in these end times?](https://youtu.be/8mOXzNavmIY) · 2026-11-19T06:04
+
+## 小Lu说（1）
+- [亚马逊 KDP 出版必备的 6 款 AI 工具：从选题研究、书籍设计到搭建自己的品牌网站](https://youtu.be/dSQ98UoplRA) · 2026-11-19T06:00
+
+## 你可敢信（1）
+- [你可敢信直播](https://youtu.be/LVUjubywUs4) · 2026-11-19T05:52
+
+## AI学长小林（1）
+- [Gemini 4 Neon 发布：比 Opus 5.5 和 GPT-6.2 更强，却更便宜 ｜ 深度实测](https://youtu.be/_GlDQEbWmn0) · 2026-11-19T05:30
+
+## 七年环球 7 years travel（1）
+- [在印尼当有钱人的一天，体验火车头等舱跪式服务，奢华到难以想象价格低到离谱](https://youtu.be/UV8C3kBtLmg) · 2026-11-19T05:25
+
+## 科技宅小明（1）
+- [【首发】蒸馏前女友？用AI续赛博姻缘！](https://youtu.be/LORbJF5FeGE) · 2026-11-19T05:01
+
+## 五岳散人（1）
+- [中国枉做小人：APEC针对高市早苗首相的“小动作”，这些年在圣上治下，中国外交有多丢人（最后两分钟踹了一脚某赖皮狗，与今日主题无关）](https://youtu.be/wTFPoKCJLTA) · 2026-11-19T04:42
+
+## 驚掉下巴（1）
+- [太魔幻！63歲冥誕，梅艷芳骨灰竟然被偷了？邪門儀式、配陰婚、收藏怪癖，明星骨灰，居然這麼多人惦記？[驚掉下巴 | 小烏]](https://youtu.be/8Z3gJBdA5Wo) · 2026-11-19T04:35
+
+## 英语兔（1）
+- [APEC 全称是啥？到底啥意思？](https://youtu.be/QU0jKLlBRIw) · 2026-11-19T04:34
+
+## 老张是大佬（1）
+- [3块钱一根的盗版小米快充线能支持100W快充吗？明知山有虎](https://youtu.be/Tpligf4t-NI) · 2026-11-19T04:30
+
+## 美上美皮膚科-莊盈彥醫師（1）
+- [打完電波，眼周小細紋還在？怎麼處理？#眼周細紋 #眼周電波 #Thermage #UltraPulseAlpha #UPAlpha #莊盈彥醫師 #美上美皮膚科](https://youtu.be/_g1kRGecpSg) · 2026-11-19T04:30
+
+## 大家车言论【官方频道 欢迎订阅】（1）
+- [裸车23万，雷克萨斯新ES也上特惠车了！【大家车言论】](https://youtu.be/z_sx5FCKnZM) · 2026-11-19T04:03
+
+## 外贸团长（1）
+- [Pasta Maker Display: A kitchen product with a cooking story](https://youtu.be/m6kPMeTCdGY) · 2026-11-19T04:00
+
+## Empti Music |Healing Music for Sleep & Mindfulness（1）
+- [Connect to Higher-Self 963Hz ✧ Deep Spiritual Sleep](https://youtu.be/riVf6TFciQU) · 2026-11-19T04:00
+
+## 清一色-幽默油条喜剧（1）
+- [两个女生都开始紧张了起来 #脱口秀 #清一色脱口秀 #幽默油条清一色 #清一色脱口秀 #清一色演出](https://youtu.be/ZgoHPAfS_3U) · 2026-11-19T03:59
+
+## 江峰时刻（1）
+- [高市早苗下機第一步遇險，司局級接機，沒有鮮花少年；李在明正部級接機，全套歡迎拉滿！北京為何APEC拉韓冷日？【江峰漫談20261118第1313期】](https://youtu.be/huAiZ4jiMMg) · 2026-11-19T03:29
+
+## 錫蘭Ceylan（1）
+- [這是最牛逼的GTA6直播](https://youtu.be/i0ZTlfs7M-I) · 2026-11-19T03:24
+
+## 隐枫视野（1）
+- [浑水做空英伟达：个案？窝案？| 第574期](https://youtu.be/4gvOq_ANXjo) · 2026-11-19T03:07
+
+## 臺大演講網（1）
+- [半導體生涯的教訓｜臺大椰林講座創智系列](https://youtu.be/Hd5GY7hKCFs) · 2026-11-19T03:04
+
+## 中美对标（1）
+- [习近平破例亲迎川普！高市早苗遭冷遇，普京被晾一边｜深圳APEC外交大戏｜英伟达突然停止对华出货【美国热搜】11/18](https://youtu.be/wS68BAaELog) · 2026-11-19T03:00
+
+## 獅心瘋（1）
+- [⌚獅心瘋：【HK12 Ultra 4 多功能智慧手錶】抬腕看訊息！隨身語音翻譯✕百變個性錶盤✕遙控拍照，高CP值智慧腕錶登場！🔥](https://youtu.be/ni4y6E6kIsE) · 2026-11-19T03:00
+
+## 周六野 Zoey（1）
+- [离开老公和孩子后……【周六野Zoey】](https://youtu.be/xmVz7wOy86A) · 2026-11-19T02:33
+
+## 天下文化（1）
+- [OGSM找出職場菁英，讓組織管理更確實📖《OGSM 2.0 帶出高協作團隊》 #張敏敏](https://youtu.be/H5OKG0HQmTw) · 2026-11-19T02:21
+
+## Marie玛丽-斯坦福豪宅- MK Group（1）
+- [卖房前这3笔装修钱，不要花！](https://youtu.be/INo3g-JhPJA) · 2026-11-19T02:15
+
+## 不明白播客（1）
+- [李厚辰：中国人在寻找解释自己生活的新框架](https://youtu.be/S8WOKh7U8Ec) · 2026-11-19T02:12
+
+## 洋拉图（1）
+- [港股打新很强！香港老登致富证券 #港股打新 #众安银行 #复星证券](https://youtu.be/X0zprtq6Wvk) · 2026-11-19T02:11
+
+## 西康札记Xikang（1）
+- [路过成都美领馆感慨万千 王立军都快出狱了 美领馆却再也回不来了|成都美领馆的撤馆 是一个时代的终结 中美已渐行渐远|怀念有美领馆的日子 美国梦还要继续](https://youtu.be/417asof1VMg) · 2026-11-19T02:00
+
+## 壹加壹（1）
+- [價值台幣 $15,900 的 GTA6典藏版禮盒](https://youtu.be/M3ldcDUxOg4) · 2026-11-19T02:00
+
+## FearNation 世界苦茶（1）
+- [[透明茶室 277] G2时代的外交样貌，西太平洋地缘政治全解析](https://youtu.be/7Dg4kqpQYa0) · 2026-11-19T01:51
+
+## PowerThoughts Meditation Club（1）
+- [Deep SLEEP Music for Restless Winter Nights | 432Hz Gentle Night Calm | 8 Hours](https://youtu.be/XCsO-uNTGgk) · 2026-11-19T01:30
+
+## 順手牽洋 ShaunTheGlomad（1）
+- [从老王的新加坡券商美股账单看，什么是 CRS和FATCA？境外收入怎么交税？有哪些合法合规的税务优化思路？](https://youtu.be/-0ubcLeDNH4) · 2026-11-19T01:28
+
+## 穷人工作室Poor Studio（1）
+- [黑科技加持让你的老显卡雄起【N卡终极算力解锁】全网最简单！20系/30系/40系显卡算力一键暴力解锁教程，小白零基础也能轻松搞定，实测性能直接狂飙暴涨将近翻倍！保姆级操作步，速来围观白嫖极致性能！](https://youtu.be/Va9U0CHH4AM) · 2026-11-19T01:07
+
+## 未解之謎 扶搖（1）
+- [小人國真的存在？神祕蘑菇引發百年謎團| #未解之謎 扶搖](https://youtu.be/389KmF3xlJs) · 2026-11-19T01:00
+
+## 圆Tarot（1）
+- [圆快讯 整合能量 无时限](https://youtu.be/WaaBaOH7TRY) · 2026-11-19T00:58
+
+## 医痴的木头屋（1）
+- [降压药对于肝脏的影响](https://youtu.be/h9B0iK8UuoU) · 2026-11-19T00:46
+
+## 老范讲故事（1）
+- [失业程序员正在毁灭世界？一个关于AI的鬼故事 #失业程序员](https://youtu.be/eQCDuZIeVVk) · 2026-11-19T00:30
+
+## Victor美股投资（1）
+- [美股还要跌多少？防守股千万别追涨。个股分析：BTC NVDA AAPL KO PG V.](https://youtu.be/gOV-XLpsmjY) · 2026-11-19T00:24
+
+## 一个狠人（1）
+- [一萬四千億的Anthropic、八千億的機房、這筆帳差了三倍半！該不該買？4吉瓦晶片通不上電一年白燒490億、回本勝算才54%、發行價只押三年漲3倍、股民賺了機房和債主照樣可能虧！](https://youtu.be/Alx8jyN-S80) · 2026-11-19T00:23
+
+## TED（1）
+- ["Deep listening” can help you form relationships across generations, cultures and divides #TEDTalks](https://youtu.be/Q6MRUhfussk) · 2026-11-19T00:00
+
+## 銀座單向街書店（1）
+- [郭宇为什么从字节辞职？](https://youtu.be/QY770QhtSkQ) · 2026-11-19T00:00
+
+## 行动派心理学 王魄（1）
+- [华人越怕事越招事  #变强大 #心理咨询 #国外避坑 #心理学 #看清一个人](https://youtu.be/kyKtVkeL0n8) · 2026-11-18T23:55
+
+## Lemon English（1）
+- [「我吃不太習慣」「這樣比較省事」「我還是喜歡原來的」英文怎麼說？200句實用美式生活口語｜5秒反應訓練](https://youtu.be/nKwB04XYhRY) · 2026-11-18T23:45
+
+## 街头小小小霸王（1）
+- [美国71岁独居盲人：音乐天赋被埋没，举目无亲，却说自己很幸福？](https://youtu.be/xmym1jwnPQI) · 2026-11-18T23:45
+
+## 老李玩钱（1）
+- [英伟达财报落地！后续看法及操作建议](https://youtu.be/wHuinaIIt7c) · 2026-11-18T23:03
+
+## NaNa说美股（1）
+- [明天全村人的希望！NaNa说美股(2026.11.18)](https://youtu.be/S7KhEKoSHuo) · 2026-11-18T22:52
+
+## TEKNIQ（1）
+- [They Invented a Genius Way to Cut  Giant Volcanic Rocks](https://youtu.be/coDH_MKUfNg) · 2026-11-18T21:01
+
+## Hanne Marks（1）
+- [Quick STORY TIME💘: Growing up as a chubby kid and always getting laughed at about my weight❤️‍🩹, I](https://youtu.be/1KEHbw_63Lo) · 2026-11-18T18:56
+
+## 冒险雷探长（1）
+- [生活的良方 #冒险雷探长](https://youtu.be/6XJFwd8Mz7I) · 2026-11-18T18:50
+
+## LastWeekTonight（1）
+- [Season Finale & Buc-ee's #lastweektonight](https://youtu.be/sqGFO9NI8vE) · 2026-11-18T17:08
+
+## DoctorRamani（1）
+- [Real stories of people standing up to NARCISSISTIC behavior](https://youtu.be/GBdY0GLfAP4) · 2026-11-18T16:00
+
+## 小宇宙儿（1）
+- [拾玖邑真人法事案例分享  外星神石转世  灵性开启第一关：病体同受#小宇宙儿#拾玖邑](https://youtu.be/S-OCkTfMtyI) · 2026-11-18T15:59
+
+## 姜胡说（1）
+- [关注我屁用没有 关注我屁用没有。我最近20天涨了90万粉丝，但我想跟你说句实话：关注我，一丁点帮助都没有。再好的老师不能替你思考，也不能替你行动。你赚不到钱，先别怪技能。问问自己现在...](https://youtu.be/hyjAl9_Z_7Y) · 2026-11-18T15:57
+
+## 蓝小彬（1）
+- [脉冲星乐队《Cold Girl(冷酷女孩）》20261030长沙Riff LIVE｜蓝小彬](https://youtu.be/4PffNdf3k30) · 2026-11-18T15:46
+
+## 才子情感（1）
+- [背叛沒被發現，就沒有傷害嗎](https://youtu.be/0GgElhKByrM) · 2026-11-18T15:45
+
+## Benjamin Cowen（1）
+- [Bitcoin: The Bull's Dilemma](https://youtu.be/HNuV6mayKmk) · 2026-11-18T15:36
+
+## Learn English With TV Series（1）
+- [Learn English with DUA LIPA](https://youtu.be/ZOcJz0NLIfA) · 2026-11-18T15:29
+
+## 电丸科技AK（1）
+- [XREAL Aura！Android XR 有救了！……吗？](https://youtu.be/x7Di7E5Ec6A) · 2026-11-18T15:09
+
+## Positive Energy Meditation Music（1）
+- [The Healing Sound Of Tibetan Zen • Eliminates All Negative Energy • Calm Mind And Body #14](https://youtu.be/irxy6hvhP7w) · 2026-11-18T15:00
+
+## Max Amini（1）
+- [Breast Radiologist | Max Amini | Stand-up Comedy](https://youtu.be/pr6RUKluz8M) · 2026-11-18T14:50
+
+## 温馨VINCY（1）
+- [十件國寶抵達前海，真正托住它們的是什麼？Ten National Treasures Have Arrived in Qianhai. What Made It Possible? #apec](https://youtu.be/awabnroZqEw) · 2026-11-18T14:42
+
+## 小翠時政財經（1）
+- [🔴【每日要聞】史無前例，習近平親自接機川普！財報炸裂，黃仁勳的老本，英偉達還可以吃多久？SpaceX為什麼這麼抗跌？｜小翠時政財經 20261118](https://youtu.be/ub2xXxZZmi4) · 2026-11-18T14:31
+
+## Tai-Lin (Irene) Lee（1）
+- [Why a hospital runs its AI in the basement](https://youtu.be/4WLXA-yOgCg) · 2026-11-18T14:01
+
+## Volka English（1）
+- [Why You Understand English But Can't Speak It #English](https://youtu.be/uLFLbvHg5t8) · 2026-11-18T14:00
+
+## 徽湖说房（1）
+- [26年资产缩表，无人能幸免，全民失安全感；摩根：90%房企会倒闭，只有幸存者才能生存；沈阳宝马裁员1800人；数字货币只有数字无货币。](https://youtu.be/L_jk7RE0_m8) · 2026-11-18T13:36
+
+## DEAR HELEN (海轮海轮)（1）
+- [27 人及其时代、转世、弥漫的临在与知晓之光《一个美国哲学家的死后日志：威廉·詹姆士的世界观》珍·罗伯兹著   第十章之三 William James 威廉·詹姆斯](https://youtu.be/UUepJJ-b52k) · 2026-11-18T13:30
+
+## Junchi Cheung（1）
+- [约炮如何不走心？别做这三件事 ❗️  #分享](https://youtu.be/SnEP_xZTrHs) · 2026-11-18T13:30
+
+## 小人物說中國（1）
+- [笑瘋了！手搓0.2毫米！一分鐘蒙眼開鎖！車企離譜操作！修不起啊！絕對不是故意的！自動泊車遛彎！永遠追不上！](https://youtu.be/0g5t0-VXQQY) · 2026-11-18T13:24
+
+## 科技小露（1）
+- [2026 高性能专线机场测评｜4K 高带宽稳如老狗，支持全平台多端使用，ChatGPT / Netflix 轻松解锁！](https://youtu.be/ACaJAwrz77Y) · 2026-11-18T13:14
+
+## 你的杠晶（1）
+- [东马 vs 西马更自由？ #新加坡 #马来西亚](https://youtu.be/GrCcSNGEJio) · 2026-11-18T13:12
+
+## trader叫兽（1）
+- [SMC进阶：不是每次小止损都能有效#trading #高頻交易 #高頻交易 #技术分析#价格行为 #priceaction](https://youtu.be/_mRelfUmck4) · 2026-11-18T13:06
+
+## 澳洲Henry（1）
+- [黄仁勋出轨门，背后的隐秘风向 远远超出了我们所有人的预料.....今天开始，一切都变了](https://youtu.be/KRnO_KrKB6s) · 2026-11-18T13:06
+
+## Dr. Grace（1）
+- [每天5分鐘，一年後我不再失眠焦慮](https://youtu.be/OYBqUAYW8lE) · 2026-11-18T13:03
+
+## Steve Kaufmann - lingosteve（1）
+- [Why Learn Russian? The Coolest Language in the World!](https://youtu.be/rkKCVOSDZwE) · 2026-11-18T13:02
+
+## 邦妮區塊鏈 Bonnie Blockchain（1）
+- [馬斯克出手救黃仁勳？矽谷四大巨頭連署逼宮NVIDIA董事會，重返輝達王座倒數計時？【邦妮區塊鏈】](https://youtu.be/YRu0b2XepR4) · 2026-11-18T13:01
+
+## 泛科學院（1）
+- [Gemini 4 Argon 實測！它真能看懂影片、分析瑜珈動作嗎？｜泛科學院](https://youtu.be/zMFFuCtMtXg) · 2026-11-18T13:00
+
+## 志祺七七（1）
+- [台灣產業斷層正在發生！中小企業不如解散去買0050？｜志祺七七 Shorts #Highlight](https://youtu.be/9O9y4nx76Nk) · 2026-11-18T13:00
+
+## 老张亡命天涯（1）
+- [不嫌弃你丑，不嫌弃胖，不嫌弃不懂浪漫，中国人身份在菲律宾很好使 #菲律宾 #马尼拉 #天使城 #国外老婆 #菲律宾媳妇](https://youtu.be/aYfvA-OAkqk) · 2026-11-18T13:00
+
+## The DoDo Men - 嘟嘟人（1）
+- [人生第一次挑戰世界經典馬拉松！跑到30公里雙腳開始抽筋差點放棄！？](https://youtu.be/b6CVfptkDlU) · 2026-11-18T13:00
+
+## 一小時聽英文 One Hour English（1）
+- [🎧保母級英文聽力訓練｜老朋友互虧到一半，東西壞了才發現誤會大了｜朋友口語｜突發狀況英文｜B1英文｜English Listening Practice（附中文翻譯）](https://youtu.be/5DfJ2t0QgXM) · 2026-11-18T13:00
+
+## 黑男邱比特（1）
+- [黑男邱比特 :：大眼美女VS廣告業輕熟男｜Big-Eyed Beauty vs. Mature Advertising Guy｜ストリートマッチング｜길거리 매칭](https://youtu.be/TR759y02QSY) · 2026-11-18T13:00
+
+## 夸克说（1）
+- [罗大佑为何痛骂赖清德？从《之乎者也》到今天，他究竟在反对什么？夸克说](https://youtu.be/Wz8wck2M9K4) · 2026-11-18T13:00
+
+## Eydis Meditation (亞蒂絲冥想)（1）
+- [鋼琴冥想音樂：擔心的事情都會順利解決528Hz｜亞蒂絲冥想音樂（放鬆音樂、鋼琴音樂、輕音樂、2小時）](https://youtu.be/gTnMcgC5odk) · 2026-11-18T13:00
+
+## 尉遲大官人（1）
+- [差评一条，全家没了！中国式尖酸刻薄，成底层互害的导火索；景区招保洁都比考公难，第一批80后已彻底出局，中国底层生存空间正在崩塌！](https://youtu.be/l0L5dX2enFI) · 2026-11-18T12:55
+
+## 捧舅泰國（1）
+- [雨後的曼谷週六夜太迷人！散步素坤逸20巷，開箱2026年全新「珠寶水晶」聖誕樹 🎄 Bangkok’s Most Stunning Christmas Tree?](https://youtu.be/UvRbVlNrJ2U) · 2026-11-18T12:41
+
+## 脑洞乌托邦（1）
+- [孤兒結婚怕沒人捧場，號召網友來參加婚禮，結局竟然如此失控...](https://youtu.be/ywFdfSHiaGQ) · 2026-11-18T12:31
+
+## 超直白Chaozhibai（1）
+- [沒事bar03-當女生看到帥哥第一反應⋯更多AI影像製作請洽 @chaozhibai_ai ☺️](https://youtu.be/8g0JrDGrQQo) · 2026-11-18T12:12
